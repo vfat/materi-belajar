@@ -12,8 +12,8 @@ Seri ini membahas integrasi Go dengan berbagai database dan tooling pendukung: S
 
 | No  | Topik                                          | File                                 | Status      | Cek Manual  |
 |-----|------------------------------------------------|--------------------------------------|-------------|-------------|
-| 01  | Fondasi Database di Go                         | `01-db-fundamentals.md`              | ⬜ Belum    |             |
-| 02  | Golang + SQLite: Setup & CRUD                  | `02-sqlite-setup.md`                 | ⬜ Belum    |             |
+| 01  | Fondasi Database di Go                         | `01-db-fundamentals.md`              | ✅ Sudah    | ✅ Lolos    |
+| 02  | Golang + SQLite: Setup & CRUD                  | `02-sqlite-setup.md`                 | ✅ Sudah    | ✅ Lolos    |
 | 03  | SQLite: Migrations & Schema                    | `03-sqlite-migration.md`             | ⬜ Belum    |             |
 | 04  | Golang + MySQL: Connection & Config            | `04-mysql-setup.md`                  | ⬜ Belum    |             |
 | 05  | MySQL: Transactions & Query Patterns           | `05-mysql-queries.md`                | ⬜ Belum    |             |
