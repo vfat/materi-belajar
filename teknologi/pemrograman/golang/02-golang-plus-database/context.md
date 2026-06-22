@@ -14,12 +14,12 @@ Seri ini membahas integrasi Go dengan berbagai database dan tooling pendukung: S
 |-----|------------------------------------------------|--------------------------------------|-------------|-------------|
 | 01  | Fondasi Database di Go                         | `01-db-fundamentals.md`              | ✅ Sudah    | ✅ Lolos    |
 | 02  | Golang + SQLite: Setup & CRUD                  | `02-sqlite-setup.md`                 | ✅ Sudah    | ✅ Lolos    |
-| 03  | SQLite: Migrations & Schema                    | `03-sqlite-migration.md`             | ⬜ Belum    |             |
-| 04  | Golang + MySQL: Connection & Config            | `04-mysql-setup.md`                  | ⬜ Belum    |             |
-| 05  | MySQL: Transactions & Query Patterns           | `05-mysql-queries.md`                | ⬜ Belum    |             |
-| 06  | MySQL: Migrations & Environment Sync           | `06-mysql-migration.md`              | ⬜ Belum    |             |
-| 07  | Golang + PostgreSQL: Setup & JSONB             | `07-postgres-setup.md`               | ⬜ Belum    |             |
-| 08  | PostgreSQL: Advanced Queries                   | `08-postgres-advanced.md`            | ⬜ Belum    |             |
+| 03  | SQLite: Migrations & Schema                    | `03-sqlite-migration.md`             | ✅ Sudah    | ✅ Lolos    |
+| 04  | Golang + MySQL: Connection & Config            | `04-mysql-setup.md`                  | ✅ Sudah    | ✅ Lolos    |
+| 05  | MySQL: Transactions & Query Patterns           | `05-mysql-queries.md`                | ✅ Sudah    | ✅ Lolos    |
+| 06  | MySQL: Migrations & Environment Sync           | `06-mysql-migration.md`              | ✅ Sudah    | ✅ Lolos    |
+| 07  | Golang + PostgreSQL: Setup & JSONB             | `07-postgres-setup.md`               | ✅ Sudah    | ⬜ Belum    |
+| 08  | PostgreSQL: Advanced Queries                   | `08-postgres-advanced.md`            | ✅ Sudah    | ⬜ Belum    |
 | 09  | PostgreSQL: Concurrency & Locking              | `09-postgres-concurrency.md`         | ⬜ Belum    |             |
 | 10  | PostgreSQL: Migrations & Backup                | `10-postgres-tooling.md`             | ⬜ Belum    |             |
 | 11  | Golang + MongoDB: Setup & BSON                 | `11-mongodb-setup.md`                | ⬜ Belum    |             |
