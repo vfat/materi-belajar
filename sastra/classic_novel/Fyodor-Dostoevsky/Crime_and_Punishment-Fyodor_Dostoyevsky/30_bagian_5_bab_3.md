@@ -1,0 +1,171 @@
+# Kejahatan dan Hukuman
+
+## Bagian V - Bab III
+
+---
+[← Sebelumnya](29_bagian_5_bab_2.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](31_bagian_5_bab_4.md)
+---
+
+BAB III
+
+"Pyotr Petrovitch," teriaknya, "lindungi aku... setidaknya kamu! Buatlah wanita bodoh ini mengerti bahwa dia tidak bisa bersikap seperti ini kepada seorang wanita yang malang... bahwa ada hukum untuk hal-hal seperti itu.... Aku sendiri yang akan menemui gubernur jenderal.... Dia akan bertanggung jawab.... Mengingat keramahtamahan ayahku yang melindungi anak-anak yatim piatu ini."
+
+“Izinkan saya, Nyonya…. Izinkan saya.” Pyotr Petrovitch mengusirnya. “Ayahmu, seperti yang kamu ketahui, aku tidak mendapat kehormatan untuk mengetahuinya” (seseorang tertawa terbahak-bahak) “dan aku tidak bermaksud ikut serta dalam pertengkaranmu yang berkepanjangan dengan Amalia Ivanovna.... Aku datang ke sini untuk membicarakan urusanku sendiri... dan aku ingin bicara dengan putri tirimu, Sofya... Ivanovna, menurutku begitu? Izinkan aku lewat.”
+
+Pyotr Petrovitch, melewatinya, pergi ke sudut seberang tempat Sonia berada.
+
+Katerina Ivanovna tetap berdiri di tempatnya, seolah disambar petir. Dia tidak mengerti bagaimana Pyotr Petrovitch bisa menyangkal bahwa dia menikmati keramahtamahan ayahnya. Meskipun dia yang menciptakannya sendiri, dia sangat mempercayainya saat ini. Dia juga terpesona oleh nada bicara Pyotr Petrovitch yang lugas, kering, dan bahkan menghina. Semua keributan berangsur-angsur hilang di pintu masuknya. Bukan hanya karena “pebisnis serius” ini sangat tidak sesuai dengan anggota partai lainnya, namun juga jelas bahwa ia menghadapi suatu konsekuensi, bahwa ada suatu sebab luar biasa yang menyebabkannya, dan karena itu sesuatu akan terjadi. Raskolnikov, yang berdiri di samping Sonia, menyingkir untuk membiarkannya lewat; Pyotr Petrovitch sepertinya tidak memperhatikannya. Semenit kemudian Lebeziatnikov juga muncul di ambang pintu; dia tidak masuk, tapi berdiri diam, mendengarkan dengan penuh minat, nyaris bertanya-tanya, dan untuk beberapa saat tampak bingung.
+
+“Maafkan saya karena mungkin mengganggu Anda, tapi ini masalah penting,” kata Pyotr Petrovitch, berbicara kepada perusahaan secara umum. "Saya sungguh senang menemukan orang lain hadir. Amalia Ivanovna, dengan rendah hati saya mohon Anda sebagai nyonya rumah untuk memperhatikan baik-baik apa yang ingin saya katakan kepada Sofya Ivanovna. Sofya Ivanovna," lanjutnya, berbicara kepada Sonia, yang sangat terkejut dan sudah khawatir, "segera setelah kunjungan Anda, saya menemukan uang kertas seratus rubel hilang dari meja saya, di kamar teman saya Tuan Lebeziatnikov. Jika ada, apa pun yang Anda tahu dan mau beri tahu kami di mana letaknya sekarang, saya jamin atas kata-kata saya yang terhormat dan panggil semua yang hadir untuk menyaksikan bahwa masalah ini akan berakhir di situ. Jika tidak, saya akan terpaksa mengambil tindakan yang sangat serius dan kemudian... Anda harus menyalahkan diri sendiri.”
+
+Keheningan total menyelimuti ruangan itu. Bahkan anak-anak yang menangis pun masih ada. Sonia berdiri pucat pasi, menatap Luzhin dan tidak mampu mengucapkan sepatah kata pun. Dia sepertinya tidak mengerti. Beberapa detik berlalu.
+
+“Kalau begitu, bagaimana jadinya?” tanya Luzhin sambil menatapnya tajam.
+
+“Entahlah…. Aku tidak tahu apa-apa tentang itu,” Sonia akhirnya berkata dengan lemah.
+
+“Tidak, kamu tidak tahu apa-apa?” Luzhin mengulanginya dan lagi-lagi dia berhenti selama beberapa detik. “Pikirkan sebentar, Mademoiselle,” dia memulai dengan tegas, namun tetap saja menegurnya. "Renunglah, saya siap memberi Anda waktu untuk mempertimbangkannya. Mohon perhatikan ini: jika saya tidak begitu yakin maka saya tidak akan melakukannya, Anda mungkin yakin, berdasarkan pengalaman saya, berani menuduh Anda secara langsung. Mengingat bahwa untuk tuduhan langsung seperti itu di hadapan para saksi, jika salah atau bahkan salah, saya sendiri dalam arti tertentu harus bertanggung jawab, saya sadar akan hal itu. Pagi ini saya menukarkan untuk kepentingan saya sendiri beberapa surat berharga lima persen dengan jumlah sekitar tiga ribu rubel. Rekening itu dicatat di buku saya Sekembalinya ke rumah, saya mulai menghitung uang itu - seperti yang akan disaksikan oleh Tuan Lebeziatnikov - dan setelah menghitung dua ribu tiga ratus rubel, saya memasukkan sisanya ke dalam buku saku saya di saku jas saya. Sekitar lima ratus rubel tersisa di atas meja dan di antara mereka ada tiga lembar uang masing-masing seratus rubel. Lebeziatnikov dapat memberikan kesaksian tentang hal ini. Anda sendiri, Mademoiselle, mungkin tidak akan menolak untuk membenarkan pernyataan saya bahwa saya mengundang Anda melalui Tuan Lebeziatnikov, semata-mata untuk berdiskusi dengan Anda tentang keadaan kerabat Anda yang putus asa dan melarat, Katerina Ivanovna (yang makan malamnya tidak dapat saya hadiri), dan kelayakan untuk melakukan sesuatu yang bersifat berlangganan, lotere atau sejenisnya, demi keuntungannya mengingatnya dalam pikiran Anda dan kedua untuk menunjukkan kepada Anda bahwa tidak ada satu pun detail yang luput dari ingatan saya. Kemudian saya mengambil uang kertas sepuluh rubel dari meja dan menyerahkannya kepada Anda sebagai cicilan pertama dari pihak saya untuk kepentingan kerabat Anda. Tuan Lebeziatnikov melihat semua ini. Lalu saya menemani Anda ke pintu - Anda masih dalam keadaan malu yang sama - setelah itu, ditinggal sendirian dengan Tuan Lebeziatnikov, saya berbicara dengannya selama sepuluh menit - lalu Tuan Lebeziatnikov pergi. keluar dan saya kembali ke meja dengan uang tergeletak di atasnya, bermaksud untuk menghitungnya dan menyisihkannya, seperti yang saya usulkan sebelumnya. Yang mengejutkan saya, uang kertas seratus rubel telah hilang. Mohon pertimbangkan posisinya. Tuan Lebeziatnikov Saya tidak bisa menduganya. Saya tidak mungkin membuat kesalahan dalam perhitungan saya, karena semenit sebelum Anda masuk, saya telah menyelesaikan perhitungan saya dan menemukan jumlah totalnya benar. Anda harus mengakui bahwa mengingat rasa malu Anda, keinginan Anda untuk pergi dan fakta bahwa Anda tetap diam selama beberapa waktu, dan mempertimbangkan posisi sosial Anda dan kebiasaan yang terkait dengannya, saya, bisa dikatakan, dengan ngeri dan tentu saja bertentangan dengan keinginan saya, _terpaksa_ untuk memiliki kecurigaan--kecurigaan yang kejam, namun dapat dibenarkan! Saya akan menambahkan lebih jauh dan mengulangi bahwa meskipun saya memiliki keyakinan positif, saya menyadari bahwa saya mengambil risiko tertentu dalam melontarkan tuduhan ini, namun seperti yang Anda lihat, saya tidak bisa membiarkannya berlalu begitu saja. Saya telah mengambil tindakan dan saya akan memberi tahu Anda alasannya: semata-mata, Nyonya, semata-mata karena rasa tidak berterima kasih Anda! Mengapa! Saya mengundang Anda untuk kepentingan kerabat Anda yang miskin, saya memberi Anda sumbangan saya sebesar sepuluh rubel dan Anda, saat itu juga, membayar saya untuk semua itu dengan tindakan seperti itu. Sayang sekali! Anda butuh pelajaran. Mencerminkan! Terlebih lagi, sebagai teman sejati saya mohon kepada Anda--dan Anda tidak akan mempunyai teman yang lebih baik saat ini--pikirkan apa yang Anda lakukan, kalau tidak saya tidak akan tergoyahkan! Nah, bagaimana menurutmu?”
+
+“Aku tidak mengambil apa pun,” bisik Sonia ketakutan, “kamu memberiku sepuluh rubel, ini dia, ambillah.”
+
+Sonia mengeluarkan saputangannya dari sakunya, melepaskan ikatan salah satu sudutnya, mengeluarkan uang sepuluh rubel dan memberikannya kepada Luzhin.
+
+“Dan seratus rubel yang tidak kamu akui ambil?” dia bersikeras dengan nada mencela, tidak mengambil catatan itu.
+
+Sonia melihat sekelilingnya. Semua memandangnya dengan mata yang begitu mengerikan, tegas, ironis, dan bermusuhan. Dia memandang Raskolnikov... dia berdiri di dinding, dengan tangan disilangkan, menatapnya dengan mata bersinar.
+
+“Ya Tuhan!” putus dari Sonia.
+
+“Amalia Ivanovna, kita harus mengirim pesan kepada polisi dan oleh karena itu saya dengan rendah hati memohon agar Anda memanggil penjaga rumah,” kata Luzhin lembut dan bahkan ramah.
+
+“_Gott der Barmherzige!_ Aku tahu dialah pencurinya,” seru Amalia Ivanovna sambil mengangkat tangannya.
+
+“Kamu mengetahuinya?” Luzhin menyusulnya, "kalau begitu, saya kira Anda punya alasan sebelum ini untuk berpikir demikian. Saya mohon, Amalia Ivanovna yang terhormat, untuk mengingat kata-kata Anda yang telah diucapkan di hadapan para saksi."
+
+Terjadi desas-desus percakapan keras di semua sisi. Semuanya bergerak.
+
+"Apa!" teriak Katerina Ivanovna, tiba-tiba menyadari posisinya, dan dia bergegas menuju Luzhin. "Apa! Kamu menuduhnya mencuri? Sonia? Ah, orang-orang malang, orang-orang malang!"
+
+Dan sambil berlari ke arah Sonia, dia melingkarkan tangannya yang terbuang ke tubuhnya dan memeganginya seolah-olah sedang memegang catok.
+
+"Sonia! beraninya kamu mengambil sepuluh rubel darinya? Gadis bodoh! Berikan padaku! Beri aku sepuluh rubel sekaligus--ini!"
+
+Dan mengambil catatan itu dari Sonia, Katerina Ivanovna meremasnya dan melemparkannya langsung ke wajah Luzhin. Itu mengenai matanya dan jatuh ke tanah. Amalia Ivanovna bergegas mengambilnya. Pyotr Petrovitch kehilangan kesabaran.
+
+“Pegang wanita gila itu!” dia berteriak.
+
+Pada saat itu beberapa orang lain, selain Lebeziatnikov, muncul di ambang pintu, di antaranya adalah dua wanita.
+
+"Apa! Gila? Apa aku gila? Bodoh!" pekik Katerina Ivanovna. "Kau sendiri yang bodoh, pengacara yang suka picik, orang brengsek! Sonia, Sonia ambil uangnya! Sonia pencuri! Wah, dia rela memberikan sen terakhirnya!" dan Katerina Ivanovna tertawa histeris. “Apakah kamu pernah melihat orang bodoh seperti itu?” dia berbalik dari sisi ke sisi. “Dan kamu juga?” dia tiba-tiba melihat sang induk semang, "dan kamu juga, pemakan sosis, kamu menyatakan bahwa dia adalah seorang pencuri, kamu kaki ayam Prusia sampah yang dibalut crinoline! Dia belum keluar dari ruangan ini: dia datang langsung darimu, kamu celaka, dan duduk di sampingku, semua orang melihatnya. Dia duduk di sini, oleh Rodion Romanovitch. Cari dia! Karena dia tidak meninggalkan ruangan, uangnya pasti ada padanya! Cari dia, cari dia! Tapi jika kamu don’t find it, then excuse me, my dear fellow, you’ll answer for it! I’ll go to our Sovereign, to our Sovereign, to our gracious Tsar himself, and throw myself at his feet, to-day, this minute! I am alone in the world! They would let me in! Do you think they wouldn’t? You’re wrong, I will get in! I will get in! You reckoned on her meekness! You relied upon that! But I am not so submissive, let me tell kamu! Kamu sendiri sudah keterlaluan. Cari dia, cari dia!
+
+Dan Katerina Ivanovna dengan panik mengguncang Luzhin dan menyeretnya ke arah Sonia.
+
+"Saya siap, saya akan bertanggung jawab... tapi tenangkan diri Anda, Nyonya, tenangkan diri Anda. Saya melihat bahwa Anda tidak begitu patuh!... Baiklah, tapi untuk itu..." gumam Luzhin, "itu harusnya dibawa ke polisi... meskipun memang ada cukup banyak saksi.... Saya siap.... Tetapi bagaimanapun juga itu sulit bagi seorang pria... karena jenis kelaminnya.... Tetapi dengan bantuan Amalia Ivanovna... meskipun, tentu saja, itu bukan cara yang harus dilakukan hal.... Bagaimana cara melakukannya?”
+
+"Terserah kamu! Biarkan siapa pun yang suka mencarinya!" seru Katerina Ivanovna. "Sonia, keluarkan sakumu! Lihat! Lihat, monster, sakunya kosong, ini saputangannya! Ini saku satunya, lihat! Lihat, ya?"
+
+Dan Katerina Ivanovna membalik--atau lebih tepatnya merampas--kedua sakunya keluar. Namun selembar kertas terbang dari saku kanan dan menggambarkan parabola di udara jatuh di kaki Luzhin. Semua orang melihatnya, beberapa berteriak. Pyotr Petrovitch membungkuk, mengambil kertas itu dengan dua jari, mengangkatnya ke tempat yang bisa dilihat semua orang, lalu membukanya. Itu adalah uang kertas seratus rubel yang dilipat menjadi delapan. Pyotr Petrovitch mengangkat catatan yang menunjukkannya kepada semua orang.
+
+"Pencuri! Keluar dari penginapanku. Polisi, polisi!" teriak Amalia Ivanovna. "Mereka harus dikirim ke Siberia! Pergi!"
+
+Seruan muncul di semua sisi. Raskolnikov terdiam, matanya tetap tertuju pada Sonia, kecuali sesekali melirik ke arah Luzhin. Sonia berdiri diam, seolah tak sadarkan diri. Dia hampir tidak bisa merasakan kejutan. Tiba-tiba pipinya memerah; dia menangis dan menyembunyikan wajahnya di tangannya.
+
+"Bukan, itu bukan aku! Aku tidak mengambilnya! Aku tidak tahu apa-apa tentang itu," serunya dengan ratapan yang menyayat hati, dan dia berlari ke arah Katerina Ivanovna, yang memeluknya erat-erat, seolah-olah dia akan melindunginya dari seluruh dunia.
+
+"Sonia! Sonia! Aku tidak percaya! Soalnya, aku tidak percaya!" dia menangis menghadapi kenyataan yang nyata, mengayunkannya ke sana kemari dalam pelukannya seperti bayi, terus-menerus mencium wajahnya, lalu menyambar tangannya dan menciumnya juga, "kamu mengambilnya! Betapa bodohnya orang-orang ini! Ya ampun! Kamu bodoh, bodoh," teriaknya, berbicara kepada seluruh ruangan, "kamu tidak tahu, kamu tidak tahu betapa hatinya dia, betapa cantiknya dia! Dia mengambilnya, dia? Dia akan menjual kain terakhirnya, dia akan pergi barefoot to help you if you needed it, that’s what she is! She has the yellow passport because my children were starving, she sold herself for us! Ah, husband, husband! Do you see? Do you see? What a memorial dinner for you! Merciful heavens! Defend her, why are you all standing still? Rodion Romanovitch, why don’t you stand up for her? Do you believe it, too? You are not worth her little finger, all of you together! Good God! Defend her now, setidaknya!”
+
+Ratapan perempuan malang, konsumtif, tak berdaya itu seakan memberikan pengaruh yang besar bagi para pendengarnya. Wajahnya yang penuh penderitaan, letih, konsumtif, bibir kering berlumuran darah, suara parau, air mata tak terbendung seperti anak kecil, doa minta tolong yang penuh rasa percaya, kekanak-kanakan namun putus asa begitu memilukan sehingga semua orang seakan-akan bersimpati padanya. Bagaimanapun, Pyotr Petrovitch langsung dipindahkan ke _compassion_.
+
+“Nyonya, Nyonya, kejadian ini tidak berdampak pada Anda!” teriaknya dengan mengesankan, "tidak ada seorang pun yang berani menuduh Anda sebagai penghasut atau bahkan kaki tangan di dalamnya, apalagi Anda telah membuktikan kesalahannya dengan merogoh sakunya, menunjukkan bahwa Anda tidak tahu sebelumnya. Saya paling siap, paling siap untuk menunjukkan belas kasihan, jika kemiskinan, boleh dikatakan, mendorong Sofya Semyonovna ke sana, tetapi mengapa Anda menolak untuk mengaku, Mademoiselle? Apakah Anda takut akan aib? Langkah pertama? Anda kehilangan Anda kepala, mungkin? Ada yang bisa memahaminya.... Tapi bagaimana Anda bisa merendahkan diri Anda sendiri hingga melakukan tindakan seperti itu? Tuan-tuan,' dia menyapa seluruh rombongan, 'Tuan-tuan! Dengan belas kasihan dan, bisa dikatakan, bersimpati pada orang-orang ini, saya siap untuk mengabaikannya bahkan sekarang meskipun saya telah dihina secara pribadi! Dan semoga aib ini menjadi pelajaran bagi Anda di masa depan,' katanya, kepada Sonia, 'dan saya tidak akan melanjutkan masalah ini lebih lanjut.'
+
+Pyotr Petrovitch melirik Raskolnikov. Mata mereka bertemu, dan api di mata Raskolnikov sepertinya siap menghancurkannya menjadi abu. Sementara itu Katerina Ivanovna rupanya tidak mendengar apa pun. Dia mencium dan memeluk Sonia seperti perempuan gila. Anak-anak juga memeluk Sonia dari segala arah, dan Polenka—meskipun dia tidak sepenuhnya memahami apa yang salah—tenggelam dalam air mata dan gemetar karena isak tangis, sambil menyembunyikan wajah mungilnya yang cantik, yang bengkak karena menangis, di bahu Sonia.
+
+“Betapa kejinya!” tiba-tiba terdengar suara nyaring di ambang pintu.
+
+Pyotr Petrovitch melihat sekeliling dengan cepat.
+
+“Sungguh keji!” Lebeziatnikov mengulangi sambil menatap lurus ke wajahnya.
+
+Pyotr Petrovitch memberikan awal yang positif--semua memperhatikannya dan mengingatnya kembali setelahnya. Lebeziatnikov masuk ke kamar.
+
+“Dan kamu berani memanggilku sebagai saksi?” katanya sambil menghampiri Pyotr Petrovitch.
+
+"Maksud kamu apa? Apa yang kamu bicarakan?" gumam Luzhin.
+
+“Maksudku, kamu… adalah seorang pemfitnah, itulah maksud kata-kataku!” Lebeziatnikov berkata dengan panas, menatap tajam ke arahnya dengan mata rabun.
+
+Dia sangat marah. Raskolnikov menatap tajam ke arahnya, seolah menangkap dan menimbang setiap kata. Sekali lagi terjadi keheningan. Pyotr Petrovitch memang tampak hampir tercengang pada saat pertama.
+
+“Jika maksudmu itu untukku,…” dia memulai, tergagap. "Tapi ada apa denganmu? Apakah kamu sudah gila?"
+
+"Aku sedang dalam pikiranku, tapi kamu bajingan! Ah, betapa kejinya! Aku sudah mendengar semuanya. Aku sengaja menunggu untuk memahaminya, karena aku harus mengakuinya bahkan sekarang pun hal itu tidak masuk akal.... Untuk apa kamu melakukan semuanya itu, aku tidak mengerti."
+
+"Kenapa, lalu apa yang telah kulakukan? Berhentilah bicara dalam teka-teki tak masuk akalmu! Atau mungkin kamu mabuk!"
+
+"Anda mungkin pemabuk, mungkin, orang yang keji, tapi saya tidak! Saya tidak pernah menyentuh vodka, karena itu bertentangan dengan keyakinan saya. Percayakah Anda, dia, dia sendiri, dengan tangannya sendiri memberikan Sofya Semyonovna uang kertas seratus rubel itu - saya melihatnya, saya adalah seorang saksi, saya akan bersumpah! Dia yang melakukannya, dia!" ulang Lebeziatnikov, menyapa semuanya.
+
+“Apakah kamu gila, milksop?” pekik Luzhin. "Dia adalah dirinya sendiri di hadapan Anda - dia sendiri yang baru saja menyatakan di hadapan semua orang bahwa saya hanya memberinya sepuluh rubel. Bagaimana saya bisa memberikannya kepadanya?"
+
+"Aku melihatnya, aku melihatnya," ulang Lebeziatnikov, "dan meskipun itu bertentangan dengan prinsip-prinsipku, aku siap saat ini juga untuk mengambil sumpah apa pun yang kamu suka di hadapan pengadilan, karena aku melihat bagaimana kamu menyelipkannya ke dalam sakunya. Hanya seperti orang bodoh, aku pikir kamu melakukannya karena kebaikan! Ketika kamu mengucapkan selamat tinggal padanya di pintu, sementara kamu memegang tangannya di satu tangan, dengan tangan yang lain, di tangan kiri, kamu menyelipkan catatan itu ke dalam sakunya. Aku melihatnya, aku melihatnya!"
+
+Luzhin menjadi pucat.
+
+“Bohong sekali!” dia berteriak kurang ajar, "kenapa, bagaimana mungkin kamu, yang sedang berdiri di dekat jendela, melihat surat itu? Kamu hanya melihatnya dengan matamu yang picik. Kamu mengoceh!"
+
+"Tidak, aku tidak menyukainya. Dan meskipun aku berdiri agak jauh, aku melihat semuanya. Dan meskipun pasti sulit untuk membedakan uang kertas dari jendela--itu benar--aku tahu pasti bahwa itu adalah uang kertas seratus rubel, karena, ketika kamu akan memberi Sofya Semyonovna sepuluh rubel, kamu mengambil uang kertas seratus rubel dari meja (aku melihatnya karena aku berdiri di dekatnya, dan sebuah ide terlintas di benakku, sehingga aku tidak lupa kamu memegangnya di tanganmu). Kamu melipatnya dan menyimpannya di tanganmu sepanjang waktu. Aku tidak memikirkannya lagi sampai, ketika kamu bangun, kamu mengubahnya dari tangan kananmu ke kiri dan hampir menjatuhkannya! Aku menyadarinya karena gagasan yang sama muncul lagi di benakku, bahwa kamu bermaksud melakukan kebaikan padanya tanpa sepengetahuanku.
+
+Lebeziatnikov hampir kehabisan napas. Seruan-seruan yang muncul di semua tangan sebagian besar merupakan tanda keheranan, namun ada juga yang bernada mengancam. Mereka semua berkerumun di sekitar Pyotr Petrovitch. Katerina Ivanovna terbang ke Lebeziatnikov.
+
+"Aku salah dalam dirimu! Lindungi dia! Hanya kamu yang mengambil bagiannya! Dia yatim piatu. Tuhan telah mengutus kamu!"
+
+Katerina Ivanovna, yang hampir tidak tahu apa yang dia lakukan, berlutut di hadapannya.
+
+“Omong kosong!” teriak Luzhin, marah besar, "semua omong kosong yang kamu bicarakan! 'Sebuah ide muncul di benakmu, kamu tidak berpikir, kamu menyadarinya'--apa maksudnya? Jadi aku sengaja memberikannya padanya secara diam-diam? Untuk apa? Dengan benda apa? Apa yang harus aku lakukan dengan ini...?"
+
+"Untuk apa? Itu yang aku tidak mengerti, tapi apa yang kukatakan padamu adalah fakta, itu sudah pasti! Jauh dari kekeliruanku, dasar penjahat terkenal, aku ingat bagaimana, karena hal itu, sebuah pertanyaan langsung terlintas di benakku, tepat ketika aku mengucapkan terima kasih dan menekan tanganmu. Apa yang membuatmu diam-diam memasukkannya ke dalam sakunya? Mengapa kamu melakukannya secara diam-diam, maksudku? Mungkinkah itu hanya untuk menyembunyikannya dariku, mengetahui bahwa keyakinanku bertentangan dengan keyakinanmu dan bahwa aku tidak menyetujuinya? Saya pikir dia ingin memberinya kejutan ketika dia menemukan uang seratus rubel di sakunya. (Saya tahu, beberapa orang yang baik hati sangat suka melakukan tindakan amal seperti itu.) Kemudian saya juga berpikir bahwa Anda ingin mengujinya, untuk melihat apakah, ketika dia menemukannya, dia akan berterima kasih. kamu. Kemudian, juga, bahwa kamu ingin menghindari ucapan terima kasih dan bahwa, seperti kata pepatah, tangan kananmu tidak boleh tahu... sesuatu seperti itu, sebenarnya. Aku memikirkan begitu banyak kemungkinan sehingga aku menunda untuk mempertimbangkannya, tetapi masih menganggap tidak sopan untuk menunjukkan kepadamu bahwa aku mengetahui rahasiamu. Tetapi aku terpikir lagi bahwa Sofya Semyonovna mungkin dengan mudah kehilangan uang itu sebelum dia menyadarinya, itulah sebabnya aku memutuskan untuk masuk ke sini untuk memanggilnya keluar dari ruangan dan memberitahunya bahwa kamu memasukkan seratus rubel ke dalam sakunya. Namun dalam perjalanan, pertama-tama saya mengunjungi Madame Kobilatnikov untuk membawakan mereka ‘Risalah Umum tentang Metode Positif’ dan terutama untuk merekomendasikan artikel Piderit (dan juga artikel Wagner);
+
+Ketika Lebeziatnikov menyelesaikan pidatonya yang panjang lebar dengan kesimpulan logis di bagian akhir, dia cukup lelah, dan keringat mengucur dari wajahnya. Sayangnya, dia bahkan tidak bisa mengekspresikan dirinya dengan benar dalam bahasa Rusia, meskipun dia tidak tahu bahasa lain, sehingga dia sangat kelelahan, hampir kurus setelah tindakan heroik ini. Namun pidatonya menghasilkan dampak yang kuat. Dia telah berbicara dengan penuh semangat, dengan keyakinan sedemikian rupa sehingga semua orang jelas-jelas mempercayainya. Pyotr Petrovitch merasa keadaannya tidak berjalan baik.
+
+“Apa hubungannya denganku jika ide konyol muncul di benakmu?” dia berteriak, "itu tidak ada bukti. Anda mungkin hanya memimpikannya, itu saja! Dan saya beritahu Anda, Anda berbohong, Tuan. Anda berbohong dan memfitnah karena rasa dendam terhadap saya, hanya karena kesal, karena saya tidak setuju dengan proposisi sosial Anda yang berpikiran bebas dan tidak bertuhan!"
+
+Namun jawaban ini tidak menguntungkan Pyotr Petrovitch. Gumaman ketidaksetujuan terdengar di semua sisi.
+
+“Ah, itu kalimatmu sekarang, kan!” teriak Lebeziatnikov, "itu tidak masuk akal! Panggil polisi dan saya akan bersumpah! Hanya ada satu hal yang saya tidak mengerti: apa yang membuatnya mengambil risiko melakukan tindakan yang begitu hina. Oh, kasihan, pria yang hina!"
+
+“Saya bisa menjelaskan mengapa dia mengambil risiko melakukan tindakan seperti itu, dan jika perlu, saya juga akan bersumpah,” Raskolnikov akhirnya berkata dengan suara tegas, dan dia melangkah maju.
+
+Dia tampak tegas dan tenang. Semua orang merasakan dengan jelas, dari penampilannya bahwa dia benar-benar mengetahuinya dan bahwa misterinya akan terpecahkan.
+
+“Sekarang saya bisa menjelaskan semuanya pada diri saya sendiri,” kata Raskolnikov kepada Lebeziatnikov. "Sejak awal bisnis ini, aku curiga ada intrik yang tidak senonoh di balik bisnis ini. Aku mulai mencurigainya karena beberapa keadaan khusus yang hanya aku ketahui, yang akan kujelaskan sekaligus kepada semua orang: semuanya bertanggung jawab. Bukti berhargamu akhirnya membuat segalanya menjadi jelas bagiku. Aku mohon semua, semua mendengarkan. Pria ini (dia menunjuk ke Luzhin) baru-baru ini bertunangan dan akan menikah dengan seorang wanita muda--saudara perempuanku, Avdotya Romanovna Raskolnikov. Namun saat tiba di Petersburg, dia bertengkar dengan saya, kemarin lusa, pada pertemuan pertama kami dan saya mengusirnya dari kamar saya - saya punya dua saksi untuk membuktikannya. Dia orang yang sangat pendendam.... Kemarin lusa saya tidak tahu bahwa dia tinggal di sini, di kamar Anda, dan akibatnya pada hari kami bertengkar - kemarin lusa - dia melihat saya memberi Katerina Ivanovna sejumlah uang untuk pemakaman, sebagai teman mendiang Tuan Marmeladov. Dia langsung menulis surat kepada ibu saya dan memberi tahu dia bahwa saya telah memberikannya semua uangku, bukan untuk Katerina Ivanovna melainkan untuk Sofya Semyonovna, dan dengan cara yang paling hina mengacu pada... karakter Sofya Semyonovna, yaitu, mengisyaratkan karakter sikapku terhadap Sofya Semyonovna. Semua ini, seperti yang Anda pahami, bertujuan untuk memisahkan saya dari ibu dan saudara perempuan saya, dengan menyindir bahwa saya menghambur-hamburkan uang yang telah mereka kirimkan kepada saya dan hanya itu yang mereka miliki untuk barang-barang yang tidak layak di hadapannya, saya menyatakan bahwa saya telah memberikan uang itu kepada Katerina Ivanovna untuk pemakaman dan bukan kepada Sofya Semyonovna dan bahwa saya tidak mengenal Sofya Semyonovna dan memang belum pernah melihatnya sebelumnya. Pada saat yang sama saya menambahkan bahwa dia, Pyotr Petrovitch Luzhin, dengan segala kebajikannya, tidak sebanding dengan jari kelingking Sofya Semyonovna, meskipun dia berbicara begitu buruk tentangnya. Aku menjawab bahwa aku sudah melakukannya hari itu. Karena kesal karena ibu dan saudara perempuanku tidak mau bertengkar denganku atas sindiran-sindirannya, perlahan-lahan dia mulai bersikap kasar kepada mereka. Perpecahan terakhir terjadi dan dia diusir dari rumah. Semua ini terjadi kemarin malam. Sekarang aku mohon perhatian khususmu: pertimbangkan: jika sekarang dia berhasil membuktikan bahwa Sofya Semyonovna adalah seorang pencuri, dia akan menunjukkan kepada ibu dan saudara perempuanku bahwa kecurigaannya hampir benar, bahwa dia mempunyai alasan untuk melakukan hal itu. marah karena aku menyamakan adikku dengan Sofya Semyonovna, karena dengan menyerangku, dia sedang melindungi dan menjaga kehormatan adikku, tunangannya. Bahkan, melalui semua ini, dia mungkin telah mampu menjauhkanku dari keluargaku, dan tentu saja dia berharap bisa kembali disukai oleh mereka; Untuk itulah dia bekerja! Begitulah cara saya memahaminya. Itulah alasannya dan tidak ada alasan lain!”
+
+Seperti inilah, atau kira-kira seperti ini, Raskolnikov mengakhiri pidatonya yang diikuti dengan sangat penuh perhatian, meskipun sering kali disela oleh seruan dari para pendengarnya. Namun meskipun ada interupsi, dia berbicara dengan jelas, tenang, tepat, dan tegas. Suaranya yang tegas, nadanya yang penuh keyakinan, dan wajahnya yang tegas memberikan kesan yang luar biasa pada semua orang.
+
+"Ya, ya, itu dia," Lebeziatnikov mengiyakan dengan gembira, "pasti itu sebabnya, karena dia bertanya padaku, begitu Sofya Semyonovna masuk ke kamar kami, apakah kamu ada di sini, apakah aku pernah melihatmu di antara tamu-tamu Katerina Ivanovna. Dia memanggilku ke samping jendela dan diam-diam bertanya padaku. Penting baginya bahwa kamu harus berada di sini! Itu dia, itu dia!"
+
+Luzhin tersenyum menghina dan tidak berbicara. Tapi dia sangat pucat. Tampaknya dia sedang mempertimbangkan cara untuk melarikan diri. Mungkin dia akan dengan senang hati menyerahkan segalanya dan pergi, tapi saat ini hal itu mustahil dilakukan. Hal ini berarti mengakui kebenaran tuduhan yang diajukan terhadapnya. Terlebih lagi, perusahaan yang tadinya tertarik dengan minuman, kini terlalu tergerak untuk mengizinkannya. Petugas komisariat, meskipun dia belum memahami keseluruhan posisinya, berteriak lebih keras dari siapa pun dan memberikan beberapa saran yang sangat tidak menyenangkan bagi Luzhin. Namun tidak semua yang hadir mabuk; penghuni penginapan datang dari semua kamar. Ketiga orang Polandia itu sangat gembira dan terus-menerus meneriakinya: “Pan_ itu adalah _lajdak_!” dan menggumamkan ancaman dalam bahasa Polandia. Sonia mendengarkan dengan penuh perhatian, meskipun dia juga tampaknya tidak mampu memahami semuanya; dia tampak seperti baru saja kembali sadar. Dia tidak mengalihkan pandangan dari Raskolnikov, merasa bahwa seluruh keselamatannya ada pada dirinya. Katerina Ivanovna bernapas dengan berat dan kesakitan serta tampak sangat kelelahan. Amalia Ivanovna berdiri tampak lebih bodoh dari siapa pun, dengan mulut terbuka lebar, tidak mampu memahami apa yang telah terjadi. Dia hanya melihat bahwa Pyotr Petrovitch entah bagaimana menjadi sedih.
+
+Raskolnikov berusaha berbicara lagi, tetapi mereka tidak mengizinkannya. Semua orang berkerumun di sekitar Luzhin sambil melontarkan ancaman dan teriakan caci-maki. Namun Pyotr Petrovitch tidak terintimidasi. Melihat bahwa tuduhannya terhadap Sonia gagal total, dia mengambil tindakan yang kurang ajar:
+
+"Izinkan saya, Tuan-tuan, izinkan saya! Jangan menekan, biarkan saya lewat!" katanya sambil berjalan melewati kerumunan. "Dan jangan ada ancaman, jika Anda berkenan! Saya jamin itu tidak akan ada gunanya, Anda tidak akan mendapat keuntungan apa pun darinya. Sebaliknya, Anda harus menjawab, Tuan-tuan, karena telah menghalangi jalannya keadilan. Pencurinya sudah lebih dari sekadar membuka kedoknya, dan saya akan mengadili. Hakim-hakim kami tidak begitu buta dan... tidak terlalu mabuk, dan tidak akan mempercayai kesaksian dua orang kafir, agitator, dan atheis terkenal, yang menuduh saya dengan motif balas dendam pribadi yang mereka cukup bodoh untuk melakukannya. akui…. Ya, ijinkan aku lewat!”
+
+"Jangan biarkan aku menemukan jejakmu di kamarku! Silakan segera pergi, dan semuanya akan berakhir di antara kita! Saat aku memikirkan masalah yang telah kuhadapi, caraku menjelaskannya... selama dua minggu ini!"
+
+"Saya sendiri yang mengatakan kepada Anda hari ini bahwa saya akan pergi, ketika Anda mencoba untuk mempertahankan saya; sekarang saya hanya akan menambahkan bahwa Anda bodoh. Saya menyarankan Anda untuk menemui dokter untuk pemeriksaan otak dan penglihatan pendek Anda. Izinkan saya lewat, Tuan-tuan!"
+
+Dia memaksakan jalannya. Namun petugas komisariat tidak mau melepaskannya begitu saja: dia mengambil gelas dari meja, mengacungkannya ke udara dan melemparkannya ke arah Pyotr Petrovitch; tapi gelasnya langsung terbang ke arah Amalia Ivanovna. Dia menjerit, dan petugas itu, karena terlalu seimbang, terjatuh ke bawah meja. Pyotr Petrovitch berjalan ke kamarnya dan setengah jam kemudian meninggalkan rumah. Sonia, yang pada dasarnya pemalu, sebelum hari itu merasa bahwa dia bisa diperlakukan dengan buruk lebih mudah daripada siapa pun, dan bahwa dia bisa dianiaya tanpa mendapat hukuman. Namun sampai saat itu dia membayangkan bahwa dia bisa lolos dari kemalangan dengan perhatian, kelembutan dan ketundukan di hadapan semua orang. Kekecewaannya terlalu besar. Tentu saja, dia mampu menanggungnya dengan sabar dan nyaris tanpa menggerutu apa pun, bahkan ini pun. Namun pada menit pertama dia merasakannya terlalu pahit. Terlepas dari kemenangan dan pembenarannya – ketika teror dan kebodohannya yang pertama telah berlalu dan dia dapat memahami semuanya dengan jelas – perasaan tidak berdaya dan kesalahan yang dilakukan terhadapnya membuat hatinya berdebar-debar karena kesedihan dan dia diliputi tangisan histeris. Akhirnya, karena tidak tahan lagi, dia bergegas keluar kamar dan berlari pulang, segera setelah kepergian Luzhin. Ketika di tengah gelak tawa yang keras, gelas itu beterbangan ke arah Amalia Ivanovna, hal itu melebihi apa yang dapat ditanggung oleh sang induk semang. Sambil memekik, dia berlari dengan marah ke arah Katerina Ivanovna, menganggapnya bersalah atas segalanya.
+
+"Keluar dari penginapanku! Segera! Cepat!"
+
+Dan dengan kata-kata ini dia mulai merampas semua yang dia bisa dapatkan dari milik Katerina Ivanovna, dan melemparkannya ke lantai. Katerina Ivanovna, pucat, hampir pingsan, dan terengah-engah, melompat dari tempat tidur tempat dia tenggelam karena kelelahan dan melesat ke arah Amalia Ivanovna. Tapi pertarungannya terlalu tidak seimbang: sang induk semang mengusirnya seperti bulu.
+
+"Apa! Seolah-olah fitnah tak bertuhan itu belum cukup--makhluk keji ini menyerangku! Apa! Pada hari pemakaman suamiku, aku diusir dari penginapanku! Setelah makan roti dan garam, dia membawaku ke jalan, bersama anak-anak yatim piatuku! Ke mana aku harus pergi?" ratap wanita malang itu sambil terisak dan terengah-engah. “Ya Tuhan!” serunya dengan mata berbinar, "apakah tidak ada keadilan di bumi? Siapa yang harus kamu lindungi jika bukan kami anak yatim piatu? Kita lihat saja nanti! Ada hukum dan keadilan di bumi, ada, aku akan menemukannya! Tunggu sebentar, makhluk tak bertuhan! Polenka, tinggallah bersama anak-anak, aku akan kembali. Tunggu aku, jika kamu harus menunggu di jalan. Kita akan lihat apakah ada keadilan di bumi!”
+
+Dan sambil menutupi kepalanya dengan selendang hijau yang disebutkan Marmeladov kepada Raskolnikov, Katerina Ivanovna menerobos kerumunan penghuni penginapan yang tidak tertib dan mabuk yang masih memenuhi ruangan, dan, sambil meratap dan menangis, dia berlari ke jalan - dengan maksud yang samar-samar untuk segera pergi ke suatu tempat untuk mencari keadilan. Polenka dengan dua anak kecil di pelukannya berjongkok ketakutan di bagasi di sudut ruangan, di mana dia menunggu dengan gemetar hingga ibunya kembali. Amalia Ivanovna mengamuk di ruangan itu, menjerit, meratap, dan melemparkan semua yang ditemuinya ke lantai. Para penghuni penginapan berbicara dengan tidak jelas, ada yang berkomentar sekuat tenaga mengenai apa yang terjadi, ada yang bertengkar dan saling mengumpat, ada pula yang menyanyikan lagu....
+
+“Sekarang saatnya aku pergi,” pikir Raskolnikov. “Baiklah, Sofya Semyonovna, kita lihat saja apa yang akan kamu katakan sekarang!”
+
+Dan dia berangkat ke arah penginapan Sonia.
+
+---
+[← Sebelumnya](29_bagian_5_bab_2.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](31_bagian_5_bab_4.md)
+---
