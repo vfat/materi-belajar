@@ -20,10 +20,10 @@ Seri ini membahas integrasi Go dengan berbagai database dan tooling pendukung: S
 | 06  | MySQL: Migrations & Environment Sync           | `06-mysql-migration.md`              | ✅ Sudah    | ✅ Lolos    |
 | 07  | Golang + PostgreSQL: Setup & JSONB             | `07-postgres-setup.md`               | ✅ Sudah    | ⬜ Belum    |
 | 08  | PostgreSQL: Advanced Queries                   | `08-postgres-advanced.md`            | ✅ Sudah    | ⬜ Belum    |
-| 09  | PostgreSQL: Concurrency & Locking              | `09-postgres-concurrency.md`         | ⬜ Belum    |             |
-| 10  | PostgreSQL: Migrations & Backup                | `10-postgres-tooling.md`             | ⬜ Belum    |             |
-| 11  | Golang + MongoDB: Setup & BSON                 | `11-mongodb-setup.md`                | ⬜ Belum    |             |
-| 12  | MongoDB: CRUD & Aggregation                    | `12-mongodb-queries.md`              | ⬜ Belum    |             |
+| 09  | PostgreSQL: Concurrency & Locking              | `09-postgres-concurrency.md`         | ✅ Sudah    | ⬜ Belum    |
+| 10  | PostgreSQL: Migrations & Backup                | `10-postgres-tooling.md`             | ✅ Sudah    | ⬜ Belum    |
+| 11  | Golang + MongoDB: Setup & BSON                 | `11-mongodb-setup.md`                | ✅ Sudah    | ⬜ Belum    |
+| 12  | MongoDB: CRUD & Aggregation                    | `12-mongodb-queries.md`              | ✅ Sudah    | ⬜ Belum    |
 | 13  | MongoDB: Indexing & Performance                | `13-mongodb-performance.md`          | ⬜ Belum    |             |
 | 14  | Golang + Redis: Setup & Basic Ops              | `14-redis-setup.md`                  | ⬜ Belum    |             |
 | 15  | Redis: Caching Strategies                      | `15-redis-caching.md`                | ⬜ Belum    |             |
