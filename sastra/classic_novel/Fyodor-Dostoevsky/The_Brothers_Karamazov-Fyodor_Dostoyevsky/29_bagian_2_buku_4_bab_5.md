@@ -1,0 +1,141 @@
+# Kakak Beradik Karamazov
+
+### Bagian II
+#### Buku IV: Laserasi
+## Bab V: Sebuah Laserasi Di Ruang Gambar
+
+---
+[← Sebelumnya](28_bagian_2_buku_4_bab_4.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](30_bagian_2_buku_4_bab_6.md)
+---
+
+Namun di ruang tamu percakapan sudah selesai. Katerina Ivanovna sangat bersemangat, meski dia tampak tegas. Saat Alyosha dan Madame Hohlkov masuk, Ivan Fyodorovitch berdiri untuk berpamitan. Wajahnya agak pucat dan Alyosha memandangnya dengan cemas. Karena momen ini adalah untuk memecahkan keraguan, sebuah teka-teki mengganggu yang selama beberapa waktu menghantui Alyosha. Selama sebulan sebelumnya, dia telah beberapa kali diberitahu bahwa saudaranya, Ivan, jatuh cinta pada Katerina Ivanovna, dan terlebih lagi, bahwa dia bermaksud “membawanya pergi” dari Dmitri. Sampai akhir-akhir ini, gagasan itu tampak mengerikan bagi Alyosha, meski hal itu sangat membuatnya khawatir. Dia mencintai kedua saudara laki-lakinya, dan takut akan persaingan di antara mereka. Sementara itu, Dmitri langsung mengatakan pada hari sebelumnya bahwa dia senang Ivan menjadi saingannya, dan itu sangat membantu dia, Dmitri. Dalam hal apa hal ini membantunya? Untuk menikahi Grushenka? Tapi itu yang Alyosha anggap sebagai kemungkinan terburuk. Selain semua ini, Alyosha hingga malam sebelumnya secara implisit percaya bahwa Katerina Ivanovna memiliki cinta yang teguh dan penuh gairah pada Dmitri; tapi dia hanya mempercayainya sampai malam sebelumnya. Dia juga membayangkan bahwa dia tidak mampu mencintai pria seperti Ivan, dan bahwa dia memang mencintai Dmitri, dan mencintainya apa adanya, terlepas dari semua keanehan dari hasrat tersebut.
+
+Tapi saat adegan kemarin dengan Grushenka, ada ide lain yang muncul di benaknya. Kata “laserasi,” yang baru saja diucapkan Madame Hohlakov, hampir membuatnya terperanjat, karena setengah terbangun menjelang fajar malam itu dia berteriak “Laserasi, laserasi,” mungkin menerapkannya pada mimpinya. Dia telah bermimpi sepanjang malam tentang adegan hari sebelumnya di rumah Katerina Ivanovna. Sekarang Alyosha terkesan dengan pernyataan Madame Hohlakov yang blak-blakan dan terus-menerus bahwa Katerina Ivanovna jatuh cinta pada Ivan, dan hanya menipu dirinya sendiri melalui semacam pose, dari “merobek diri sendiri”, dan menyiksa dirinya sendiri dengan berpura-pura mencintai Dmitri karena rasa terima kasih yang khayalan. “Ya,” pikirnya, “mungkin seluruh kebenaran terletak pada kata-kata itu.” Namun dalam hal ini bagaimana posisi Ivan? Alyosha secara naluriah merasa bahwa karakter seperti Katerina Ivanovna harus mendominasi, dan dia hanya bisa mendominasi seseorang seperti Dmitri, dan tidak pernah bisa mendominasi pria seperti Ivan. Karena Dmitri pada akhirnya mungkin akan tunduk pada dominasinya “untuk kebahagiaannya sendiri” (yang merupakan keinginan Alyosha), namun Ivan—tidak, Ivan tidak bisa tunduk padanya, dan kepatuhan seperti itu tidak akan memberinya kebahagiaan. Alyosha mau tidak mau mempercayai hal itu pada Ivan. Dan sekarang semua keraguan dan renungan ini melintas di benaknya saat dia memasuki ruang tamu. Gagasan lain pun memaksanya: “Bagaimana kalau dia tidak mencintai keduanya—baik Ivan maupun Dmitri?”
+
+Perlu dicatat bahwa Alyosha merasa malu dengan pikirannya sendiri dan menyalahkan dirinya sendiri ketika pikiran itu terus berulang selama sebulan terakhir. “Apa yang saya ketahui tentang cinta dan wanita dan bagaimana saya dapat memutuskan pertanyaan seperti itu?” dia berpikir dengan nada mencela, setelah keraguan dan dugaan seperti itu. Namun mustahil untuk tidak memikirkannya. Secara naluriah dia merasa bahwa persaingan ini sangat penting dalam kehidupan saudara-saudaranya dan banyak hal bergantung padanya.
+
+“Satu reptil akan memangsa yang lain,” kata Ivan sehari sebelumnya, berbicara dengan kemarahan kepada ayahnya dan Dmitri. Jadi Ivan memandang Dmitri sebagai seekor reptil, dan mungkin sudah lama melakukannya. Mungkinkah sejak dia mengenal Katerina Ivanovna? Ungkapan itu, tentu saja, luput dari perhatian Ivan kemarin, tapi itu justru membuatnya semakin penting. Jika dia merasa seperti itu, apa peluang perdamaian yang ada? Sebaliknya, bukankah ada alasan baru untuk kebencian dan permusuhan dalam keluarga mereka? Dan siapa di antara mereka yang membuat Alyosha bersimpati? Dan apa yang dia harapkan untuk mereka masing-masing? Dia mencintai keduanya, tapi apa yang dia inginkan dari keduanya di tengah konflik kepentingan ini? Dia mungkin tersesat dalam labirin ini, dan hati Alyosha tidak dapat menahan ketidakpastian, karena cintanya selalu bersifat aktif. Dia tidak mampu memiliki cinta pasif. Jika dia mencintai seseorang, dia akan segera bekerja untuk membantunya. Dan untuk melakukan hal ini dia harus mengetahui apa yang dia tuju; dia harus mengetahui dengan pasti apa yang terbaik bagi masing-masing, dan setelah memastikan hal ini wajar baginya untuk membantu mereka berdua. Namun alih-alih mencapai tujuan yang pasti, ia tidak menemukan apa pun selain ketidakpastian dan kebingungan di semua sisi. “Itu sangat menyakitkan,” seperti yang baru saja dikatakan. Tapi apa yang bisa dia pahami bahkan dalam “laserasi” ini? Dia tidak mengerti kata pertama dalam labirin yang membingungkan ini.
+
+Melihat Alyosha, Katerina Ivanovna berkata dengan cepat dan gembira kepada Ivan, yang sudah bangun untuk pergi, "Sebentar! Tunggu sebentar lagi! Saya ingin mendengar pendapat orang yang benar-benar saya percayai di sini. Jangan pergi," tambahnya, berbicara kepada Nyonya Hohlakov. Dia menyuruh Alyosha duduk di sampingnya, dan Madame Hohlakov duduk di seberangnya, di samping Ivan.
+
+“Kalian semua adalah teman-temanku di sini, satu-satunya yang kumiliki di dunia ini, teman-temanku yang terkasih,” dia memulai dengan hangat, dengan suara yang bergetar karena air mata penderitaan yang tulus, dan hati Alyosha langsung menghangat padanya. "Kau, Alexei Fyodorovitch, kemarin menyaksikan kejadian keji itu, dan melihat apa yang kulakukan. Kau tidak melihatnya, Ivan Fyodorovitch, dia yang melihatnya. Aku tidak tahu apa yang dia pikirkan tentangku kemarin. Aku hanya tahu satu hal, bahwa jika hal itu terulang hari ini, saat ini, aku akan mengungkapkan perasaan yang sama lagi seperti kemarin—perasaan yang sama, kata-kata yang sama, tindakan yang sama. Kamu ingat perbuatanku, Alexei Fyodorovitch; kamu memeriksaku dalam salah satu tindakanku. mereka”… (saat dia mengatakan itu, wajahnya memerah dan matanya bersinar). "Harus kuberitahu padamu bahwa aku tidak bisa melupakannya. Dengar, Alexei Fyodorovitch. Aku bahkan tidak tahu apakah aku masih mencintainya. Aku merasa kasihan padanya, dan itu pertanda cinta yang buruk. Jika aku mencintainya, jika aku masih mencintainya, mungkin aku tidak seharusnya merasa kasihan padanya sekarang, tapi seharusnya membencinya."
+
+Suaranya bergetar, dan air mata berkilauan di bulu matanya. Alyosha bergidik dalam hati. “Gadis itu jujur ​​dan tulus,” pikirnya, “dan dia tidak mencintai Dmitri lagi.”
+
+“Itu benar, itu benar,” seru Madame Hohlakov.
+
+"Tunggu, Sayang. Aku belum memberitahumu, Ketua, tentang keputusan terakhir yang kuambil pada malam itu. Aku merasa mungkin keputusanku ini buruk sekali—bagiku, tapi aku yakin tidak akan ada yang bisa membujukku untuk mengubahnya—tidak ada apa pun. Itu akan terjadi sepanjang hidupku. Penasihatku yang terkasih, baik hati, selalu setia, dan murah hati, satu-satunya temanku di dunia ini, Ivan Fyodorovitch, dengan wawasannya yang mendalam ke dalam hati, menyetujui dan memuji keputusanku. Dia tahu itu.”
+
+“Ya, saya menyetujuinya,” Ivan mengiyakan, dengan suara tenang namun tegas.
+
+"Tetapi aku juga harus menyukai Alyosha (Ah! Alexei Fyodorovitch, maafkan aku memanggilmu hanya Alyosha), aku juga ingin Alexei Fyodorovitch, memberitahuku di depan kedua temanku apakah aku benar. Secara naluriah aku merasa bahwa kamu, Alyosha, adalah saudaraku tersayang (karena kamu adalah saudara yang kusayangi)," dia berkata lagi dengan gembira, sambil memegang tangan dingin Alyosha, "Aku memperkirakan bahwa keputusanmu, persetujuanmu, akan membawa kedamaian bagiku, meskipun semua penderitaanku, karena, setelah kata-katamu, aku akan tenang dan tunduk—aku merasakannya.”
+
+“Aku tidak tahu apa yang kamu tanyakan padaku,” kata Alyosha dengan wajah memerah. “Aku hanya tahu bahwa aku mencintaimu dan saat ini lebih menginginkan kebahagiaanmu daripada kebahagiaanku!… Tapi aku tidak tahu apa-apa tentang hal-hal seperti itu,” sesuatu mendorongnya untuk menambahkan dengan tergesa-gesa.
+
+"Dalam urusan-urusan seperti itu, Alexei Fyodorovitch, dalam urusan-urusan seperti itu, yang terpenting adalah kehormatan dan kewajiban dan sesuatu yang lebih tinggi—aku tidak tahu apa—tapi bahkan mungkin lebih tinggi daripada kewajiban. Aku sadar akan perasaan yang tak tertahankan dalam hatiku, dan perasaan itu memaksaku untuk tak tertahankan. Tapi itu semua bisa diringkas dalam dua kata. Aku sudah memutuskan, bahkan jika dia menikahi—makhluk itu," dia memulai dengan sungguh-sungguh, "yang tidak pernah, tidak akan pernah bisa aku maafkan, _bahkan kemudian aku tidak akan meninggalkannya." dia_. Sejak saat itu aku tidak akan pernah meninggalkannya!” serunya, berubah menjadi pucat dan histeris. "Bukan berarti aku akan mengejarnya terus-menerus, menghalangi jalannya, dan membuatnya khawatir. Oh, tidak! Aku akan pergi ke kota lain—ke tempat yang kamu suka—tapi aku akan menjaganya sepanjang hidupku—aku akan terus menjaganya sepanjang hidupku. Ketika dia menjadi tidak bahagia dengan wanita itu, dan itu akan segera terjadi, biarkan dia datang kepadaku dan dia akan menemukan seorang teman, seorang saudara perempuan.... Tentu saja, hanya seorang saudara perempuan, dan seterusnya; tetapi setidaknya dia akan mengetahui bahwa saudara perempuan itu benar-benar saudara perempuannya, yang Aku mencintainya dan telah mengorbankan seluruh hidupnya untuknya. Aku akan mencapai tujuanku. Aku akan bersikeras agar dia mengenalku dan memercayaiku sepenuhnya, tanpa syarat, ”teriaknya, dalam kegilaan. "Aku akan menjadi dewa yang bisa didoakannya—dan, paling tidak, dia berutang kepadaku atas pengkhianatannya dan atas penderitaanku kemarin karena dia. Dan biarkan dia melihat bahwa sepanjang hidupku aku akan setia kepadanya dan janji yang kuberikan padanya, meskipun dia tidak benar dan mengkhianatiku. Aku akan—aku tidak akan menjadi apa-apa selain sarana untuk kebahagiaannya, atau—bagaimana harus kukatakan?—sebuah alat, mesin untuk kebahagiaannya, dan untuk seluruh hidupku, seluruh hidupku, dan agar dia dapat melihat itu sepanjang hidupnya! Itu keputusan saya. Ivan Fyodorovitch sepenuhnya menyetujui saya.”
+
+Dia terengah-engah. Dia mungkin bermaksud untuk mengekspresikan idenya dengan lebih bermartabat, seni dan alami, tapi pidatonya terlalu tergesa-gesa dan kasar. Itu penuh dengan impulsif masa muda, itu menunjukkan bahwa dia masih merasa kesal karena penghinaan kemarin, dan bahwa harga dirinya mendambakan kepuasan. Dia merasakannya sendiri. Wajahnya tiba-tiba menjadi gelap, tatapan tidak menyenangkan muncul di matanya. Alyosha langsung melihatnya dan merasa sedikit simpati. Saudaranya, Ivan, memperburuk keadaan dengan menambahkan:
+
+“Saya hanya mengungkapkan pandangan saya sendiri,” katanya. "Dari orang lain, hal ini akan terpengaruh dan berlebihan, tapi darimu—tidak. Wanita lain mana pun pasti salah, tapi kamu benar. Aku tidak tahu bagaimana menjelaskannya, tapi menurutku kamu benar-benar tulus dan, oleh karena itu, kamu benar."
+
+"Tetapi itu hanya untuk saat ini. Dan apa arti momen ini? Hanya penghinaan kemarin." Madame Hohlakov jelas tidak bermaksud ikut campur, tapi dia tidak bisa menahan diri untuk tidak berkomentar secara adil.
+
+"Benar, benar sekali," teriak Ivan, dengan semangat yang khas, jelas kesal karena disela, "bagi orang lain, momen ini hanya karena kesan kemarin dan hanya sesaat. Tapi dengan karakter Katerina Ivanovna, momen itu akan bertahan seumur hidupnya. Apa yang bagi orang lain hanyalah sebuah janji, baginya merupakan tugas yang berat dan berat, mungkin berat, tapi tak kunjung padam. Dan dia akan ditopang oleh perasaan bahwa tugas ini telah terpenuhi. Hidupmu, Katerina Ivanovna, akan terus berlanjut sejak saat itu. dihabiskan dalam perenungan yang menyakitkan atas perasaanmu sendiri, kepahlawananmu sendiri, dan penderitaanmu sendiri; namun pada akhirnya penderitaan itu akan dilunakkan dan akan berubah menjadi perenungan yang manis akan pemenuhan rancangan yang berani dan membanggakan. Ya, tentu saja bangga, dan dalam hal apa pun putus asa, tetapi sebuah kemenangan bagi Anda pada akhirnya akan menjadi sumber kepuasan penuh dan akan membuat Anda pasrah dengan segala hal lainnya.
+
+Hal ini jelas sekali diucapkan dengan nada kedengkian dan jelas-jelas disengaja; bahkan mungkin tanpa keinginan untuk menyembunyikan bahwa dia berbicara dengan ironis dan dengan niat.
+
+“Ya ampun, betapa kelirunya semua ini!” Nyonya Hohlakov menangis lagi.
+
+"Alexey Fyodorovitch, bicaralah. Saya sangat ingin tahu apa yang akan Anda katakan!" seru Katerina Ivanovna sambil menangis. Alyosha bangkit dari sofa.
+
+“Bukan apa-apa, tidak apa-apa!” dia melanjutkan sambil menangis. "Aku kesal, aku tidak tidur tadi malam. Tapi di sisi dua teman seperti kamu dan kakakmu aku masih merasa kuat—karena aku tahu—kalian berdua tidak akan pernah meninggalkanku."
+
+“Sayangnya aku harus kembali ke Moskow—mungkin besok—dan meninggalkanmu untuk waktu yang lama—Dan, sialnya, hal itu tidak bisa dihindari,” kata Ivan tiba-tiba.
+
+“Besok—ke Moskow!” wajahnya tiba-tiba berkerut; “tapi—tapi sayangku, betapa beruntungnya!” serunya dengan suara yang tiba-tiba berubah. Dalam sekejap tidak ada bekas air matanya yang tersisa. Dia mengalami transformasi seketika, yang membuat Alyosha takjub. Alih-alih seorang gadis malang yang terhina, menangis dalam semacam “luka terkoyak,” dia melihat seorang wanita yang sepenuhnya menguasai diri dan bahkan sangat senang, seolah-olah sesuatu yang menyenangkan baru saja terjadi.
+
+“Oh, sialnya aku kehilanganmu, tentu saja tidak,” tiba-tiba dia mengoreksi dirinya sendiri, dengan senyuman menawan. "Teman sepertimu tidak bisa membayangkan hal itu. Aku sangat sedih kehilanganmu." Dia bergegas ke arah Ivan, dan meraih kedua tangannya, menekannya dengan hangat. "Tetapi yang beruntung adalah kamu bisa bertemu dengan Bibi dan Agafya di Moskow dan menceritakan kepada mereka semua betapa buruknya keadaanku saat ini. Kamu bisa berbicara dengan terbuka sepenuhnya kepada Agafya, tapi ampunilah Bibi. Kamu akan tahu cara melakukan itu. Kamu tidak akan berpikir betapa celakanya aku kemarin dan pagi ini, bertanya-tanya bagaimana aku bisa menulis surat mengerikan itu kepada mereka—karena orang tidak akan pernah bisa menceritakan hal-hal seperti itu melalui surat.... Sekarang akan mudah bagiku untuk menulisnya, karena kamu akan melihatnya dan menjelaskan semuanya. Oh, betapa senangnya aku! Tapi aku hanya senang akan hal itu, percayalah. Tentu saja, tidak ada seorang pun yang bisa menggantikanmu.... Aku akan segera berlari untuk menulis surat itu,” tiba-tiba dia selesai, dan mengambil langkah seolah hendak keluar ruangan.
+
+“Lalu bagaimana dengan Alyosha dan pendapatnya, yang sangat ingin kamu dengar?” teriak Nyonya Hohlakov. Ada nada sinis dan marah dalam suaranya.
+
+“Aku belum melupakan hal itu,” seru Katerina Ivanovna, tiba-tiba terhenti, “dan mengapa kamu begitu bermusuhan pada saat seperti ini?” dia menambahkan, dengan celaan yang hangat dan pahit. "Apa yang sudah kukatakan, aku ulangi. Aku harus menerima pendapatnya. Lebih dari itu, aku harus mendapatkan keputusannya! Seperti yang dia katakan, begitulah yang terjadi. Kau lihat betapa cemasnya aku mendengar kata-katamu, Alexei Fyodorovitch.... Tapi ada apa?"
+
+"Saya tidak dapat mempercayainya. Saya tidak dapat memahaminya!" Alyosha tiba-tiba menangis sedih.
+
+"Opo opo?"
+
+"Dia akan pergi ke Moskow, dan kamu berteriak bahwa kamu senang. Kamu sengaja mengatakan itu! Dan kamu mulai menjelaskan bahwa kamu tidak senang akan hal itu tetapi menyesal—kehilangan seorang teman. Tapi itu juga akting—kamu memainkan peran—seperti di teater!"
+
+"Di teater? Apa? Apa maksudmu?" seru Katerina Ivanovna, sangat terkejut, wajahnya merah padam, dan alisnya berkerut.
+
+“Meskipun kamu meyakinkan dia bahwa kamu menyesal kehilangan seorang teman dalam dirinya, kamu tetap mengatakan kepadanya secara langsung bahwa dia beruntung bisa pergi,” kata Alyosha terengah-engah. Dia berdiri di depan meja dan tidak duduk.
+
+"Apa yang kamu bicarakan? Saya tidak mengerti."
+
+“Aku sendiri tidak mengerti…. Sepertinya aku melihatnya dalam sekejap… Aku tahu aku tidak mengatakannya dengan benar, tapi aku akan tetap mengatakannya,” Alyosha melanjutkan dengan suara gemetar dan patah yang sama. “Apa yang kulihat adalah mungkin kamu tidak mencintai Dmitri sama sekali... dan tidak pernah mencintainya, sejak awal.... Dan Dmitri, juga, tidak pernah mencintaimu... dan hanya menghargaimu.... Aku benar-benar tidak tahu bagaimana aku berani mengatakan semua ini, tapi seseorang harus mengatakan yang sebenarnya... karena tak seorang pun di sini akan mengatakan yang sebenarnya.”
+
+Kebenaran apa? seru Katerina Ivanovna, dan terdengar nada histeris dalam suaranya.
+
+“Biar kuberitahu,” Alyosha melanjutkan dengan tergesa-gesa, seolah-olah dia sedang melompat dari atas sebuah rumah. "Panggil Dmitri; aku akan menjemputnya—dan biarkan dia datang ke sini dan menggandeng tanganmu dan menggandeng tangan Ivan dan bergandengan tangan. Karena kamu menyiksa Ivan, hanya karena kamu mencintainya—dan menyiksanya, karena kamu mencintai Dmitri melalui 'penghancuran diri'—dengan cinta yang tidak nyata—karena kamu telah meyakinkan dirimu sendiri."
+
+Alyosha terdiam dan terdiam.
+
+“Kamu… kamu… kamu adalah seorang idiot yang religius—itulah dirimu sebenarnya!” bentak Katerina Ivanovna. Wajahnya pucat dan bibirnya bergerak karena marah.
+
+Ivan tiba-tiba tertawa dan bangkit. Topinya ada di tangannya.
+
+“Kau salah, Alyosha yang baik,” katanya, dengan ekspresi yang belum pernah Alyosha lihat di wajahnya sebelumnya—ekspresi ketulusan masa muda dan perasaan yang kuat dan terus terang yang tak tertahankan. "Katerina Ivanovna tidak pernah peduli padaku! Dia sudah tahu sepanjang waktu bahwa aku peduli padanya—walaupun aku tidak pernah mengatakan sepatah kata pun tentang cintaku padanya—dia tahu, tapi dia tidak peduli padaku. Aku juga tidak pernah menjadi temannya, tidak untuk sesaat pun; dia terlalu sombong sehingga membutuhkan persahabatanku. Dia selalu mendampingiku sebagai alat balas dendam. Dia membalas dendam kepadaku dan kepadaku atas semua hinaan yang terus-menerus dia terima dari Dmitri sejak pertemuan pertama mereka. Bahkan untuk pertemuan pertama itu. telah menggerogoti hatinya sebagai penghinaan—seperti itulah hatinya! Dia tidak mengatakan apa-apa kepadaku selain cintanya padanya. Aku pergi sekarang; tapi, percayalah, Katerina Ivanovna, kamu benar-benar mencintainya. Dan semakin dia menghinamu, semakin kamu mencintainya—itulah 'luka batin'mu. Kamu mencintainya apa adanya; kamu mencintainya karena menghinamu. Jika dia berubah, kamu akan segera menyerahkannya dan berhenti mencintainya renungkan terus-menerus kesetiaan heroikmu dan cela dia karena perselingkuhan. Dan itu semua berasal dari kesombonganmu. Oh, ada banyak penghinaan dan merendahkan diri tentang hal itu, tetapi itu semua berasal dari kesombongan.... Aku masih terlalu muda dan aku terlalu mencintaimu. Aku tahu bahwa aku tidak boleh mengatakan ini, bahwa akan lebih bermartabat bagiku jika meninggalkanmu, dan itu tidak akan terlalu menyinggungmu. Tapi aku akan pergi jauh, dan tidak akan pernah kembali.... Itu untuk selama-lamanya. Saya tidak ingin duduk di samping 'laserasi.'... Tapi saya tidak tahu bagaimana mengatakannya sekarang. Saya sudah mengatakan segalanya.... Selamat tinggal, Katerina Ivanovna; Anda tidak boleh marah kepada saya, karena saya dihukum seratus kali lebih berat daripada Anda, jika hanya dengan kenyataan bahwa saya tidak akan pernah melihat Anda lagi. Saya tidak ingin tangan Anda menyiksa saya terlalu sengaja sehingga saya dapat memaafkan Anda saat ini. tapi sekarang aku tidak menginginkan tanganmu. 'Den Dank, Dame, begehr ich nicht,'” dia menambahkan, dengan senyum yang dipaksakan, namun menunjukkan bahwa dia bisa membaca Schiller, dan membacanya sampai dia hafal dia—yang Alyosha tidak akan pernah percaya. Dia keluar kamar tanpa pamit bahkan kepada nyonya rumah, Madame Hohlakov. Alyosha mengatupkan kedua tangannya.
+
+“Ivan!” dia menangis putus asa setelahnya. "Kembalilah, Ivan! Tidak, tidak ada yang bisa membujuknya untuk kembali sekarang!" dia menangis lagi, menyesal menyadarinya; "Tapi ini salahku, salahku. Aku yang memulainya! Ivan berbicara dengan marah, salah. Tidak adil dan marah. Dia harus kembali ke sini, kembali," Alyosha terus berseru dengan panik.
+
+Katerina Ivanovna tiba-tiba masuk ke kamar sebelah.
+
+"Kamu tidak melakukan kejahatan apa pun. Kamu berperilaku cantik, seperti bidadari," bisik Madame Hohlkov dengan cepat dan penuh kegembiraan kepada Alyosha. “Saya akan melakukan yang terbaik untuk mencegah Ivan Fyodorovitch pergi.”
+
+Wajahnya berseri-seri gembira, membuat Alyosha sangat tertekan, tetapi Katerina Ivanovna tiba-tiba kembali. Dia memegang uang kertas dua ratus rubel di tangannya.
+
+“Aku ingin meminta bantuanmu, Alexei Fyodorovitch,” dia memulai, menyapa Alyosha dengan suara yang tampak tenang dan datar, seolah-olah tidak terjadi apa-apa. "Seminggu—ya, menurutku itu seminggu yang lalu—Dmitri Fyodorovitch bersalah atas tindakan yang terburu-buru dan tidak adil—tindakan yang sangat buruk. Ada sebuah kedai kecil di sini, dan di sana dia bertemu dengan petugas yang sudah dipecat, kapten itu, yang biasa dipekerjakan oleh ayahmu dalam suatu bisnis. Dmitri Fyodorovitch entah bagaimana kehilangan kesabarannya terhadap kapten ini, menjambak janggutnya dan menyeretnya ke jalan dan agak jauh di sepanjang jalan itu, dengan cara yang menghina. Dan aku diberitahu bahwa putranya, seorang bocah lelaki, masih kanak-kanak, yang bersekolah di sini, melihatnya dan berlari di samping mereka sambil menangis dan memohon agar ayahnya, memohon kepada semua orang untuk membelanya, sementara semua orang tertawa. Anda harus memaafkan saya, Alexei Fyodorovitch, saya tidak bisa berpikir tanpa kemarahan atas tindakan tercela dari dia ... salah satu tindakan yang hanya mampu dilakukan oleh Dmitri Fyodorovitch dalam kemarahannya ... dan dalam nafsunya! I can’t find my words. I’ve made inquiries about his victim, and find he is quite a poor man. His name is Snegiryov. He did something wrong in the army and was discharged. I can’t tell you what. And now he has sunk into terrible destitution, with his family—an unhappy family of sick children, and, I believe, an insane wife. He has been living here a long time; he used to work as a copying clerk, but now he is getting nothing. I thought if you ... that aku pikir ... aku tidak tahu. Aku sangat bingung. Begini, aku ingin memintamu, sayangku Alexei Fyodorovitch, untuk menemuinya, mencari alasan untuk menemui mereka—maksudku kepada kapten itu—oh, ya ampun, betapa buruknya aku menjelaskannya!—dan dengan hati-hati, hati-hati, karena hanya kamu yang tahu caranya” (Alyosha tersipu), “berhasil memberinya bantuan ini, dua ratus rubel ini ambillah.... Atau, lebih tepatnya, apa yang saya maksud? Anda lihat, ini bukan sebagai kompensasi untuk mencegah dia mengambil tindakan hukum (karena saya yakin dia memang bermaksud demikian), tapi sekadar tanda simpati, keinginan untuk membantunya dari saya, tunangan Dmitri Fyodorovitch, bukan dari dirinya sendiri.... Tapi tahukah Anda.... Saya sendiri yang akan pergi, tapi Anda akan tahu cara melakukannya dengan lebih baik. Dia tinggal di Lake Street, di rumah seorang wanita bernama Kalmikov.... Demi Tuhan, Alexei Fyodorovitch, lakukanlah ini untukku, dan sekarang… sekarang aku agak… lelah!”
+
+Dia berbalik dan menghilang di balik portière begitu cepat sehingga Alyosha tidak sempat mengucapkan sepatah kata pun, meskipun dia ingin berbicara. Dia ingin sekali memohon maaf padanya, menyalahkan dirinya sendiri, mengatakan sesuatu, karena hatinya penuh dan dia tidak sanggup keluar dari ruangan tanpanya. Tapi Madame Hohlakov menggandeng tangannya dan menariknya bersamanya. Di aula dia menghentikannya lagi seperti sebelumnya.
+
+“Dia bangga, dia berjuang dengan dirinya sendiri; tapi baik hati, menawan, murah hati,” serunya setengah berbisik. "Oh, betapa aku mencintainya, terutama kadang-kadang, dan betapa senangnya aku lagi atas segala hal! Alexei Fyodorovitch sayang, kamu tidak tahu, tapi aku harus memberitahumu, bahwa kita semua, semua—baik bibinya, aku dan kita semua, Lise, bahkan—tidak berharap dan berdoa selama sebulan terakhir ini kecuali agar dia melepaskan Dmitri kesayanganmu, yang tidak memerhatikannya dan tidak mempedulikannya, dan boleh menikah dengan Ivan Fyodorovitch—orang yang sangat baik dan terlatih pria muda, yang mencintainya lebih dari apa pun di dunia ini. Kami sedang merencanakan untuk mewujudkannya, dan saya bahkan mungkin tetap di sini karena hal itu.”
+
+“Tetapi dia menangis—dia terluka lagi,” seru Alyosha.
+
+"Jangan pernah mempercayai air mata wanita, Alexei Fyodorovitch. Aku tidak pernah berpihak pada wanita dalam kasus seperti ini. Aku selalu berada di pihak pria."
+
+“Mamma, kamu memanjakannya,” seru suara kecil Lise dari balik pintu.
+
+"Tidak, itu semua salahku. Akulah yang harus disalahkan," ulang Alyosha dengan perasaan tidak terhibur, menyembunyikan wajahnya di balik kedua tangannya karena penyesalan yang mendalam atas kecerobohannya.
+
+"Justru sebaliknya; kamu berperilaku seperti malaikat, seperti malaikat. Saya siap mengatakannya ribuan kali."
+
+“Mamma, bagaimana dia bersikap seperti malaikat?” Suara Lise terdengar lagi.
+
+“Aku langsung membayangkan,” Alyosha melanjutkan seolah-olah dia tidak mendengar Lise, “bahwa dia mencintai Ivan, jadi aku mengatakan hal bodoh itu.... Apa yang akan terjadi sekarang?”
+
+“Kepada siapa, kepada siapa?” seru Lisa. "Mamma, kamu benar-benar ingin menjadi kematianku. Aku bertanya padamu dan kamu tidak menjawab."
+
+Saat itu pelayan itu berlari masuk.
+
+“Katerina Ivanovna sakit.... Dia menangis, meronta... histeris.”
+
+“Ada apa?” seru Lise dengan nada sangat cemas. “Mamma, aku yang akan histeris, bukan dia!”
+
+"Lise, demi ampun, jangan berteriak, jangan menganiaya aku. Di usiamu, seseorang tidak bisa mengetahui segala hal yang diketahui orang dewasa. Aku akan datang dan memberitahumu semua yang perlu kamu ketahui. Oh, kasihanilah kami! Aku datang, aku datang.... Histeris adalah pertanda baik, Alexei Fyodorovitch; untunglah dia histeris. Memang seharusnya begitu. Dalam kasus seperti ini aku selalu menentang wanita itu, menentang all these feminine tears and hysterics. Run and say, Yulia, that I’ll fly to her. As for Ivan Fyodorovitch’s going away like that, it’s her own fault. But he won’t go away. Lise, for mercy’s sake, don’t scream! Oh, yes; you are not screaming. It’s I am screaming. Forgive your mamma; but I am delighted, delighted, delighted! Did you notice, Alexey Fyodorovitch, how young, how Ivan Fyodorovitch muda baru saja keluar, ketika dia mengatakan semua itu dan keluar? Saya pikir dia sangat terpelajar, sangat _cerdas_, dan tiba-tiba dia berperilaku begitu hangat, terbuka, dan awet muda, dengan pengalaman muda, dan semuanya baik-baik saja, seperti Anda.... Dan cara dia mengulangi ayat Jerman itu, sama seperti Anda! Tapi saya harus terbang, saya harus terbang! Lise, apakah kamu menginginkan sesuatu sekarang? Demi ampun, jangan tunggu Alexei Fyodorovitch sebentar. Dia akan segera kembali kepadamu.
+
+Madame Hohlakov akhirnya kabur. Sebelum berangkat, Alyosha akan membukakan pintu untuk menemui Lise.
+
+“Sama sekali tidak,” seru Lise. "Jangan sampai sekarang. Bicaralah melalui pintu. Bagaimana kamu bisa menjadi malaikat? Hanya itu yang ingin kuketahui."
+
+"Bodoh sekali, Lise! Selamat tinggal!"
+
+“Jangan berani pergi seperti itu!” Lise mulai.
+
+"Lise, aku benar-benar sedih! Aku akan langsung kembali, tapi aku punya kesedihan yang sangat, sangat besar!"
+
+Dan dia berlari keluar ruangan.
+
+---
+[← Sebelumnya](28_bagian_2_buku_4_bab_4.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](30_bagian_2_buku_4_bab_6.md)
+---

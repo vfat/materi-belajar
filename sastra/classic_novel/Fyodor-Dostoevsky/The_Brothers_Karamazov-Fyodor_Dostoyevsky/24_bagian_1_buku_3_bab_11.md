@@ -1,0 +1,97 @@
+# Kakak Beradik Karamazov
+
+### Bagian I
+#### Buku III: Kaum Sensualis
+## Bab XI: Reputasi Lain Hancur
+
+---
+[← Sebelumnya](23_bagian_1_buku_3_bab_10.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](25_bagian_2_buku_4_bab_1.md)
+---
+
+Jarak dari kota ke biara tidak lebih dari tiga perempat mil. Alyosha berjalan cepat menyusuri jalan yang pada jam itu sepi. Hari sudah hampir malam, dan terlalu gelap untuk melihat apa pun dengan jelas pada jarak tiga puluh langkah di depan. Ada persimpangan jalan di tengah jalan. Sesosok tubuh terlihat di bawah pohon willow di persimpangan jalan. Begitu Alyosha sampai di persimpangan jalan, sosok itu keluar dan berlari ke arahnya sambil berteriak dengan kejam:
+
+“Uangmu atau nyawamu!”
+
+“Jadi itu kamu, Mitya,” seru Alyosha kaget, namun sangat terkejut.
+
+"Ha ha ha! Kamu tidak mengharapkanku? Aku bertanya-tanya di mana harus menunggumu. Dekat rumahnya? Ada tiga cara dari sana, dan aku mungkin akan merindukanmu. Akhirnya aku berpikir untuk menunggu di sini, karena kamu harus lewat sini, tidak ada jalan lain menuju biara. Ayo, katakan yang sebenarnya. Hancurkan aku seperti kumbang. Tapi ada apa?"
+
+"Tidak apa-apa, Saudaraku—itu adalah ketakutan yang kau berikan padaku. Oh, Dmitri! Darah Ayah barusan." (Alyosha mulai menangis, dia sudah hampir menangis sejak lama, dan sekarang ada sesuatu yang menghentak dalam jiwanya.) “Kamu hampir membunuhnya—mengutuknya—dan sekarang—di sini—kamu membuat lelucon—'Uangmu atau nyawamu!'”
+
+"Yah, bagaimana dengan itu? Kelihatannya tidak—bukankah? Tidak sesuai dengan posisiku?"
+
+“Tidak—aku hanya—”
+
+"Diamlah. Lihatlah malam ini. Kau lihat betapa gelapnya malam itu, betapa mendungnya, betapa kencangnya angin yang bertiup. Aku bersembunyi di sini di bawah pohon willow menunggumu. Dan karena Tuhan di atas, tiba-tiba aku berpikir, mengapa harus terus menderita lebih lama lagi, apa lagi yang harus ditunggu? Di sini aku punya pohon willow, sapu tangan, baju, aku bisa memelintirnya menjadi tali sebentar lagi, dan juga kawat gigi, dan mengapa terus membebani bumi, tidak menghormatinya dengan kehadiranku yang keji? Lalu aku mendengar kedatanganmu—Astaga, rasanya seolah-olah ada sesuatu yang terbang ke arahku secara tiba-tiba. Jadi, ada seorang laki-laki yang kucintai. Ini dia, laki-laki itu, adik laki-lakiku sayang, yang kucintai lebih dari siapa pun di dunia ini, satu-satunya orang yang kucintai di dunia. Dan aku sangat mencintaimu, begitu besarnya pada saat itu sehingga aku berpikir, 'Aku akan langsung jatuh ke lehernya.' uang!' Maafkan kebodohanku—itu hanya omong kosong, dan tidak ada yang tidak pantas dalam jiwaku.... Sialan, ceritakan padaku apa yang terjadi. Apa yang dia katakan? Pukul aku, hancurkan aku, jangan ampuni aku! Apa dia marah?"
+
+"Tidak, bukan itu.... Tidak ada yang seperti itu, Mitya. Di sana—aku menemukan keduanya di sana."
+
+"Keduanya? Siapa?"
+
+“Grushenka di rumah Katerina Ivanovna.”
+
+Dmitri menjadi bisu.
+
+"Mustahil!" dia menangis. "Kamu mengoceh! Grushenka bersamanya?"
+
+Alyosha menceritakan semua yang terjadi sejak dia masuk ke rumah Katerina Ivanovna. Dia sepuluh menit menceritakan kisahnya. Ia tidak dapat dikatakan telah menceritakannya dengan lancar dan berurutan, namun ia tampaknya menyampaikannya dengan jelas, tidak menghilangkan kata atau tindakan apa pun yang penting, dan dengan gamblang menggambarkan, sering kali dalam satu kata, perasaannya sendiri. Dmitri mendengarkan dalam diam, menatapnya dengan tatapan tajam yang mengerikan, tapi jelas bagi Alyosha bahwa dia memahami semuanya, dan telah memahami setiap poin. Namun seiring berjalannya cerita, wajahnya tidak hanya menjadi muram, tapi juga mengancam. Dia merengut, mengatupkan giginya, dan tatapannya yang terpaku menjadi lebih kaku, lebih terkonsentrasi, lebih mengerikan, ketika tiba-tiba, dengan kecepatan yang luar biasa, wajahnya yang murka dan buas berubah, bibirnya yang terkatup rapat terbuka, dan Dmitri Fyodorovitch tertawa terbahak-bahak dan spontan. Dia benar-benar tertawa terbahak-bahak. Untuk waktu yang lama dia tidak dapat berbicara.
+
+"Jadi dia tidak mau mencium tangannya! Jadi dia tidak menciumnya; jadi dia lari!" dia terus berseru histeris kegirangan; itu mungkin disebut kegembiraan yang kurang ajar, kalau saja hal itu tidak terjadi secara spontan. "Jadi yang satu lagi memanggilnya harimau betina! Dan dia memang harimau betina! Jadi dia harus dicambuk di tiang gantungan? Ya, ya, jadi dia harus melakukannya. Itulah yang kupikirkan; dia seharusnya sudah lama sekali. Seperti ini, saudaraku, biarkan dia dihukum, tapi aku harus sembuh dulu. Aku mengerti ratu yang kurang ajar. Itu dia! Kamu melihatnya dalam ciuman tangan itu, iblis betina! Dia luar biasa dalam dirinya sendiri baris! Jadi dia lari pulang? Aku akan pergi—ah—aku akan lari ke dia! Alyosha, jangan salahkan aku, aku setuju bahwa gantung diri itu terlalu baik untuknya.”
+
+“Tapi Katerina Ivanovna!” seru Alyosha dengan sedih.
+
+"Aku juga melihatnya! Aku bisa melihatnya, sesuatu yang belum pernah kulihat sebelumnya! Ini adalah penemuan biasa di empat benua di dunia, yakni lima benua! Sungguh suatu hal yang harus dilakukan! Itu sama seperti Katya, yang tidak takut menghadapi petugas yang kasar dan tidak sopan dan menanggung risiko penghinaan mematikan karena dorongan hati yang besar untuk menyelamatkan ayahnya! Tapi kesombongan, kecerobohan, pembangkangan terhadap takdir, pembangkangan tanpa batas! Katamu bibi itu berusaha menghentikannya? Bibi itu, tahukah Anda, dia sendiri yang sombong. Dia adalah saudara perempuan dari janda sang jenderal di Moskow, dan bahkan lebih pemarah daripada dia. Tapi suaminya ketahuan mencuri uang negara. Dia kehilangan segalanya, harta miliknya dan segalanya, dan istri yang sombong itu harus menurunkan harga dirinya, dan tidak lagi membesarkannya sejak itu. Jadi dia mencoba mencegah Katya, tapi dia tidak mau mendengarkannya! Dia pikir dia bisa mengatasi segalanya, bahwa segalanya akan memberi jalan padanya. dan dia sendiri yang memercayainya: dia berperan dalam dirinya sendiri, dan salah siapakah ini? Apakah menurut Anda dia pertama kali mencium tangan Grushenka, dengan sengaja, dengan suatu motif? Tidak, dia benar-benar terpesona oleh Grushenka, artinya, bukan oleh Grushenka, tetapi oleh mimpinya sendiri, khayalannya sendiri—karena itu adalah mimpinya, khayalannya! Alyosha, sayang, bagaimana kamu bisa lolos dari mereka, para wanita itu? jubahmu dan lari? Ha ha ha!”
+
+"Saudaraku, sepertinya kamu tidak menyadari betapa kamu telah menghina Katerina Ivanovna dengan memberi tahu Grushenka tentang hari itu. Dan dia baru saja melemparkan hal itu ke wajahnya karena dia pergi ke pria secara diam-diam untuk menjual kecantikannya! Saudaraku, apa yang lebih buruk dari penghinaan itu?"
+
+Yang paling mengkhawatirkan Alyosha adalah, meskipun kelihatannya luar biasa, kakaknya tampak senang atas penghinaan yang dilakukan Katerina Ivanovna.
+
+“Bah!” Dmitri mengerutkan keningnya dengan keras, dan memukul keningnya dengan tangannya. Dia baru menyadarinya sekarang, meskipun Alyosha baru saja memberitahunya tentang penghinaan itu, dan teriakan Katerina Ivanovna: “Adikmu bajingan!”
+
+"Ya, mungkin, aku benar-benar memberi tahu Grushenka tentang 'hari fatal' itu, begitu Katya menyebutnya. Ya, aku memang memberitahunya, aku ingat! Saat itu di Mokroe. Aku mabuk, para gipsi bernyanyi.... Tapi aku terisak-isak. Lalu aku menangis, berlutut dan berdoa pada gambar Katya, dan Grushenka memahaminya. Dia memahami semuanya saat itu. Aku ingat, dia sendiri menangis.... Sialan semuanya! Tapi itu terikat menjadi seperti sekarang.... Lalu dia menangis, tapi sekarang 'belati di hati'! Begitulah wanita.”
+
+Dia melihat ke bawah dan tenggelam dalam pikirannya.
+
+“Ya, aku bajingan, bajingan total!” katanya tiba-tiba, dengan suara muram. "Tidak masalah apakah aku menangis atau tidak, aku bajingan! Katakan padanya aku menerima nama itu, jika itu bisa menghibur. Ayo, itu sudah cukup. Selamat tinggal. Tidak ada gunanya bicara! Itu tidak lucu. Pergilah sesukamu dan aku milikku. Dan aku tidak ingin melihatmu lagi kecuali sebagai kesempatan terakhir. Selamat tinggal, Alexei!"
+
+Dia dengan hangat menekan tangan Alyosha, dan masih menunduk, tanpa mengangkat kepalanya, seolah melepaskan diri, dengan cepat berbalik ke arah kota.
+
+Alyosha menjaganya, tidak percaya dia akan pergi begitu tiba-tiba.
+
+“Tetaplah, Alexei, satu lagi pengakuan untukmu sendiri!” seru Dmitri, tiba-tiba berbalik. "Lihat aku. Lihat aku baik-baik. Kamu lihat di sini, di sini—ada aib besar yang menantiku." (Seperti yang dia katakan, “di sini,” Dmitri memukul dadanya dengan tinjunya dengan udara yang aneh, seolah-olah aib itu terletak tepat di dadanya, di suatu tempat, di dalam saku, mungkin, atau tergantung di lehernya.) “Kamu kenal aku sekarang, bajingan, bajingan yang diakui, tapi izinkan aku memberitahumu bahwa aku belum pernah melakukan apa pun sebelumnya dan tidak akan pernah melakukan apa pun lagi, apa pun yang dapat dibandingkan kehinaannya dengan aib yang aku tanggung sekarang pada saat ini di dadaku, di sini, di sini, yang will come to pass, though I’m perfectly free to stop it. I can stop it or carry it through, note that. Well, let me tell you, I shall carry it through. I shan’t stop it. I told you everything just now, but I didn’t tell you this, because even I had not brass enough for it. I can still pull up; if I do, I can give back the full half of my lost honor to-morrow. But I shan’t pull up. I shall carry out my base plan, and kamu bisa menjadi saksi bahwa aku sudah memberitahumu sebelumnya. Kegelapan dan kehancuran! Tidak perlu dijelaskan. Kamu akan mengetahuinya pada waktunya. Gang belakang yang kotor dan iblis betina. Selamat tinggal. Aku tidak layak melakukannya.
+
+Dan dia tiba-tiba mundur, kali ini akhirnya. Alyosha pergi menuju biara.
+
+"Apa? Aku tidak akan pernah melihatnya lagi! Apa yang dia katakan?" dia bertanya-tanya dengan liar. "Wah, aku pasti akan menemuinya besok. Aku akan mencarinya. Aku akan menjelaskan maksudnya. Apa maksudnya?"
+
+Ia berkeliling biara dan melintasi hutan pinus menuju tempat pertapaan. Pintu dibukakan baginya, meskipun tidak ada seorang pun yang diizinkan masuk pada jam itu. Ada getaran di hatinya saat dia masuk ke sel Pastor Zossima.
+
+"Kenapa, kenapa, dia pergi ke luar? Mengapa dia mengirimnya ke dunia? Di sini ada kedamaian. Di sini ada kekudusan. Tapi ada kebingungan, ada kegelapan di mana seseorang tersesat dan langsung tersesat ...."
+
+Di dalam sel ia menemukan samanera Porfiry dan Pastor Païssy, yang datang setiap jam untuk menanyakan kabar Pastor Zossima. Alyosha mengetahui dengan cemas bahwa keadaannya semakin buruk. Bahkan ceramahnya yang biasa dengan saudara-saudaranya tidak dapat dilakukan pada hari itu. Sebagai aturan, setiap malam setelah kebaktian, para biarawan berbondong-bondong ke sel Pastor Zossima, dan semua orang mengakui dengan lantang dosa-dosa mereka hari itu, pikiran-pikiran berdosa dan godaan-godaan mereka; bahkan perselisihan mereka, jika memang ada. Beberapa mengaku berlutut. Sang penatua memberikan pengampunan, mendamaikan, menasihati, menerapkan penebusan dosa, memberkati, dan memberhentikan mereka. Terhadap “pengakuan dosa” yang umum inilah yang diprotes oleh para penentang “sesepuh”, dengan menyatakan bahwa hal itu merupakan pencemaran terhadap sakramen pengakuan dosa, hampir merupakan sebuah penistaan, meskipun hal ini merupakan hal yang berbeda. Mereka bahkan menyatakan kepada otoritas keuskupan bahwa pengakuan seperti itu tidak membawa manfaat apa pun, namun sebenarnya sebagian besar mengarah pada dosa dan godaan. Banyak di antara saudara-saudara yang tidak suka pergi menemui yang lebih tua, dan menentang keinginan mereka sendiri karena semua orang pergi, dan karena takut mereka akan dituduh sombong dan memberontak. Orang-orang mengatakan bahwa beberapa biksu telah menyetujuinya sebelumnya, dengan mengatakan, “Saya akui saya kehilangan kesabaran terhadap Anda pagi ini, dan Anda membenarkannya,” hanya agar ada sesuatu yang ingin saya sampaikan. Alyosha tahu bahwa hal ini terkadang benar-benar terjadi. Ia juga mengetahui bahwa di antara para bhikkhu ada beberapa yang sangat membenci kenyataan bahwa surat-surat dari kerabat biasanya dibawa kepada sesepuh, untuk dibuka dan dibaca olehnya di hadapan orang-orang yang dituju.
+
+Tentu saja diasumsikan bahwa semua ini dilakukan dengan bebas, dan dengan itikad baik, melalui ketundukan sukarela dan bimbingan yang bermanfaat. Namun, pada kenyataannya, kadang-kadang terdapat banyak ketidaktulusan, dan banyak hal yang salah dan dipaksakan dalam praktik ini. Namun para bhikkhu yang lebih tua dan lebih berpengalaman menganut pendapat mereka, dengan alasan bahwa "bagi mereka yang datang ke dalam tembok ini dengan tulus mencari keselamatan, ketaatan dan pengorbanan seperti itu pasti akan bermanfaat dan bermanfaat; mereka, sebaliknya, yang menganggapnya menjengkelkan, dan menyesal, bukanlah bhikkhu sejati, dan telah melakukan kesalahan dalam memasuki biara—tempat mereka yang pantas adalah di dunia. Bahkan di kuil pun seseorang tidak dapat aman dari dosa dan iblis. Jadi tidak ada gunanya terlalu memperhitungkannya."
+
+“Dia lebih lemah, rasa kantuk telah menguasainya,” bisik Pastor Païssy kepada Alyosha, sambil memberkatinya. "Sulit untuk membangunkannya. Dan dia tidak boleh dibangunkan. Dia bangun selama lima menit, mengirimkan berkatnya kepada saudara-saudaranya, dan memohon doa mereka untuknya di malam hari. Dia bermaksud untuk mengambil sakramen lagi di pagi hari. Dia ingat kamu, Alexei. Dia bertanya apakah kamu sudah pergi, dan diberi tahu bahwa kamu ada di kota. 'Aku memberkati dia untuk pekerjaan itu,' dia berkata, 'tempatnya di sana, bukan di sini, untuk sementara.' Itu adalah kata-katanya tentang kamu. Dia ingat kamu dengan penuh kasih, dengan kecemasan; apakah kamu mengerti bagaimana dia menghormatimu? Tapi bagaimana dia bisa memutuskan bahwa kamu akan menghabiskan waktu di dunia? Dia pasti sudah meramalkan sesuatu dalam takdirmu! Pahami, Alexei, bahwa jika kamu kembali ke dunia, itu pasti untuk melakukan tugas yang diberikan kepadamu, dan bukan untuk kesombongan yang sembrono dan kesenangan duniawi.
+
+Pastor Païssy keluar. Alyosha yakin Pastor Zossima sedang sekarat, meski dia mungkin masih hidup satu atau dua hari lagi. Alyosha dengan tegas dan penuh semangat memutuskan bahwa meskipun dia telah berjanji kepada ayahnya, keluarga Hohlakov, dan Katerina Ivanovna, dia tidak akan meninggalkan biara keesokan harinya, tetapi akan tetap bersama tetuanya sampai akhir. Hatinya bersinar dengan cinta, dan dia mencela dirinya sendiri dengan getir karena mampu sesaat melupakan orang yang ditinggalkannya di biara pada saat menjelang ajalnya, dan yang dia hormati melebihi semua orang di dunia. Dia masuk ke kamar Pastor Zossima, berlutut, dan membungkuk ke tanah di hadapan orang yang lebih tua, yang tidur dengan tenang tanpa bergerak, dengan napas yang teratur, hampir tidak terdengar, dan wajah yang damai.
+
+Alyosha kembali ke ruangan lain, tempat Pastor Zossima menerima tamunya di pagi hari. Melepas sepatu botnya, dia berbaring di sofa kulit yang keras, sempit, yang telah lama dia gunakan sebagai tempat tidur, hanya membawa bantal. Kasur yang diteriakkan ayahnya pagi itu, sudah lama dia lupa untuk berbaring. Dia melepas jubahnya, yang dia gunakan sebagai penutup. Namun sebelum tidur, dia berlutut dan berdoa lama. Dalam doanya yang khusyuk ia tidak memohon agar Tuhan meringankan kegelapannya, melainkan hanya haus akan emosi gembira, yang selalu mengunjungi jiwanya setelah pujian dan pemujaan, yang biasanya terkandung dalam doa malamnya. Kegembiraan itu selalu membuatnya tidur nyenyak tanpa gangguan. Saat dia sedang berdoa, dia tiba-tiba meraba di sakunya surat kecil berwarna merah muda yang diberikan pelayan itu kepadanya ketika dia meninggalkan milik Katerina Ivanovna. Ia merasa terganggu, namun ia menyelesaikan shalatnya. Kemudian, setelah ragu-ragu, dia membuka amplop itu. Di dalamnya ada surat untuknya, ditandatangani oleh Lise, putri kecil Madame Hohlakov, yang menertawakannya di hadapan orang yang lebih tua di pagi hari.
+
+"Alexey Fyodorovitch," tulisnya, "Aku menulis kepadamu tanpa sepengetahuan siapa pun, bahkan mama, dan aku tahu betapa salahnya hal itu. Tapi aku tidak bisa hidup tanpa memberitahumu perasaan yang muncul di hatiku, dan ini tidak seorang pun kecuali kita berdua harus tahu untuk sementara waktu. Tapi bagaimana aku harus mengatakan apa yang sangat ingin kuberitahukan padamu? Kertas, kata mereka, tidak memerah, tapi aku jamin itu tidak benar dan itu memerah sama seperti aku sekarang, semuanya. Alyosha sayang, aku mencintaimu, aku telah mencintaimu sejak masa kanak-kanakku, sejak masa Moskow kita, ketika kamu sangat berbeda dari dirimu yang sekarang, dan aku akan mencintaimu sepanjang hidupku. Hatiku telah memilihmu, untuk menyatukan hidup kita, dan melewatinya bersama-sama sampai kita tua. Tentu saja, dengan syarat kamu akan meninggalkan biara. Adapun usia kita, kita akan menunggu waktu yang ditentukan oleh hukum dari itu.
+
+“Anda lihat bagaimana saya memikirkan segalanya. Hanya ada satu hal yang tidak dapat saya bayangkan: apa yang Anda pikirkan tentang saya ketika Anda membaca ini. Saya selalu tertawa dan nakal. Aku membuatmu marah pagi ini, tapi aku jamin sebelum aku mengambil penaku, aku berdoa di hadapan Patung Bunda Allah, dan sekarang aku berdoa, dan hampir menangis.
+
+"Rahasiaku ada di tanganmu. Ketika kamu datang besok, aku tidak tahu bagaimana aku akan memandangmu. Ah, Alexei Fyodorovitch, bagaimana kalau aku tidak bisa menahan diri seperti orang bodoh dan tertawa ketika melihatmu seperti yang kulakukan hari ini. Kamu akan mengira aku gadis nakal yang mengolok-olokmu, dan kamu tidak akan mempercayai suratku. Maka aku mohon, sayangku, jika kamu merasa kasihan padaku, ketika kamu datang besok, jangan tatap wajahku lurus-lurus, karena jika aku menatap matamu, pasti akan membuatku tertawa, apalagi kamu akan mengenakan gaun panjang itu. Aku merasa kedinginan ketika memikirkannya, jadi ketika kamu datang, jangan lihat aku sama sekali, lihat ke mama atau ke jendela....
+
+“Di sini aku telah menulis surat cinta untukmu. Ya ampun, apa yang telah kulakukan? Alyosha, jangan meremehkanku, dan jika aku telah melakukan sesuatu yang sangat mengerikan dan melukaimu, maafkan aku. Sekarang rahasia reputasiku, yang mungkin hancur selamanya, ada di tanganmu.
+
+"Aku pasti akan menangis hari ini. Sampai jumpa sampai pertemuan kita, pertemuan kita yang _mengerikan_.—LISE.
+
+“PS—Alyosha! Kamu harus, harus, harus datang!—LISE.”
+
+Alyosha membaca catatan itu dengan takjub, membacanya dua kali, berpikir sejenak, dan tiba-tiba tertawa lembut dan manis. Dia memulai. Baginya, tawa itu tampak berdosa. Namun semenit kemudian dia tertawa lagi dengan lembut dan bahagia. Dia perlahan-lahan mengembalikan catatan itu ke dalam amplop, membuat tanda salib dan berbaring. Kegelisahan dalam hatinya langsung berlalu. “Tuhan, kasihanilah mereka semua, jagalah semua jiwa yang malang dan bergejolak ini, dan tempatkan mereka di jalan yang benar. Segala jalan adalah milik-Mu. Simpanlah mereka sesuai dengan kebijaksanaan-Mu. Kamu adalah cinta. Engkau akan mengirimkan kegembiraan kepada semua orang!” Alyosha bergumam, membuat tanda salib, dan tertidur lelap.
+
+---
+[← Sebelumnya](23_bagian_1_buku_3_bab_10.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](25_bagian_2_buku_4_bab_1.md)
+---
