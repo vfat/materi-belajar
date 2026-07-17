@@ -1,0 +1,120 @@
+# Si Bodoh (The Idiot)
+
+### Bagian II
+## Bab 1
+
+---
+[← Sebelumnya](16_bagian_1_bab_16.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](18_bagian_2_bab_2.md)
+---
+
+Dua hari setelah pesta ulang tahun Nastasia Philipovna berakhir secara aneh, yang merupakan catatan penutup bagian pertama cerita ini, Pangeran Muishkin buru-buru meninggalkan Sankt Peterburg menuju Moskow, untuk melihat beberapa urusan yang berkaitan dengan penerimaan kekayaan tak terduganya.
+
+Dikatakan bahwa ada alasan lain atas kepergiannya yang terburu-buru; tetapi mengenai hal ini, dan mengenai pergerakannya di Moskow, dan mengenai ketidakhadirannya yang berkepanjangan di Sankt Peterburg, kami hanya dapat memberikan sedikit informasi.
+
+Sang pangeran sedang pergi selama enam bulan, dan bahkan mereka yang paling tertarik dengan takdirnya hanya dapat mengetahui sedikit berita tentang dirinya selama itu. Benar, rumor tertentu memang sampai ke teman-temannya, tapi rumor ini aneh dan jarang terjadi, dan masing-masing rumor tersebut bertentangan dengan rumor sebelumnya.
+
+Tentu saja keluarga Epanchin sangat tertarik dengan pergerakannya, meski dia belum sempat mengucapkan selamat tinggal sebelum keberangkatannya. Namun, sang jenderal sempat berkesempatan bertemu dengannya satu atau dua kali sejak peristiwa malam itu, dan telah berbicara serius dengannya; tapi meskipun dia telah melihat sang pangeran, seperti yang kubilang tadi, dia tidak memberi tahu keluarganya apa pun tentang keadaan tersebut. Faktanya, selama sekitar satu bulan setelah kepergiannya, nama pangeran dianggap tidak disebutkan lagi di rumah tangga Epanchin. Hanya Ny. Epanchin, pada awal periode ini, yang mengumumkan bahwa dia telah “disalahgunakan secara kejam sebagai pangeran!” dan satu atau dua hari setelahnya, dia menambahkan, jelas-jelas menyinggung pria itu, tapi tidak menyebutkan namanya, bahwa sudah menjadi sifat khasnya untuk salah dalam bergaul dengan orang lain. Kemudian sekali lagi, sepuluh hari kemudian, setelah beberapa kali bergandengan tangan dengan salah satu putrinya, dia berkomentar dengan penuh kalimat. Kita sudah cukup banyak melakukan kesalahan.Aku akan lebih berhati-hati di masa depan! Namun, tidak mungkin untuk menghindari komentar bahwa ada perasaan tertekan dalam rumah tangga—sesuatu yang tidak terucapkan, namun terasa; sesuatu yang tegang. Semua anggota keluarga terlihat cemberut. Jenderal itu sangat sibuk; keluarganya hampir tidak pernah melihatnya.
+
+Mengenai gadis-gadis itu, tidak ada yang diungkapkan secara terbuka di semua kesempatan; dan mungkin sangat sedikit secara pribadi. Mereka adalah gadis yang sombong, dan tidak selalu saling menjaga kerahasiaan bahkan di antara mereka sendiri. Namun mereka memahami satu sama lain secara menyeluruh pada kata pertama di semua kesempatan; sering sekali pada pandangan pertama, jadi biasanya tidak perlu banyak bicara.
+
+Setidaknya ada satu fakta yang akan terlihat jelas bagi orang luar, seandainya orang tersebut ada di tempat kejadian; Artinya, sang pangeran telah memberikan kesan yang sangat besar terhadap keluarganya, meskipun faktanya dia hanya pernah berada di dalam rumah itu sekali, dan itupun hanya untuk waktu yang singkat. Tentu saja, jika dianalisa, kesan ini mungkin terbukti tidak lebih dari rasa ingin tahu; tapi apa pun yang terjadi, itu pasti ada.
+
+Sedikit demi sedikit, rumor yang menyebar tentang kota hilang dalam labirin ketidakpastian. Dikatakan bahwa seorang pangeran muda yang bodoh, yang namanya tidak diketahui, tiba-tiba memiliki kekayaan yang sangat besar, dan menikah dengan seorang penari balet Perancis. Hal ini bertentangan dan beredar rumor bahwa yang datang adalah seorang saudagar muda yang kaya raya dan menikah dengan penari balet ternama, dan di pesta pernikahan, pemuda bodoh yang mabuk itu membakar tujuh puluh ribu rubel di atas lilin hanya karena keberaniannya.
+
+Namun, semua rumor ini segera mereda, dan fakta-fakta tertentu berkontribusi besar terhadap hal tersebut. Misalnya, seluruh pasukan Rogojin telah berangkat, dengan dia sebagai pemimpin mereka, menuju Moskow. Ini terjadi tepat seminggu setelah pesta pora yang mengerikan di taman Ekaterinhof, tempat Nastasia Philipovna hadir. Diketahui bahwa setelah pesta seks ini Nastasia Philipovna telah menghilang sepenuhnya, dan sejak itu dia telah dilacak hingga ke Moskow; sehingga eksodus band Rogojin ditemukan sesuai dengan laporan ini.
+
+Ada pula rumor yang beredar mengenai Gania; namun keadaan segera bertentangan dengan hal ini. Dia jatuh sakit parah, dan penyakitnya menghalangi dia muncul di masyarakat, dan bahkan di dunia bisnis, selama lebih dari sebulan. Namun, segera setelah dia pulih, dia menceritakan posisinya di perusahaan publik di bawah arahan Jenderal Epanchin, karena alasan yang tidak diketahui, dan jabatan itu diberikan kepada orang lain. Dia tidak pernah mendekati rumah keluarga Epanchin sama sekali, dan dia sangat mudah tersinggung dan depresi.
+
+Varvara Ardalionovna menikah dengan Ptitsin pada musim dingin ini, dan dikatakan bahwa fakta pensiunnya Gania dari bisnis adalah penyebab utama pernikahan tersebut, karena Gania kini tidak hanya tidak mampu menghidupi keluarganya, tetapi bahkan dirinya sendiri membutuhkan bantuan.
+
+Kita dapat menyebutkan bahwa Gania tidak lagi disebutkan dalam rumah tangga Epanchin seperti halnya sang pangeran; tetapi keadaan tertentu sehubungan dengan malam fatal di rumah Nastasia diketahui oleh umum, dan bahkan seluruh keluarga keesokan harinya. Faktanya, Gania sudah pulang malam itu, namun menolak untuk tidur. Dia telah menunggu kembalinya sang pangeran dari Ekaterinhof dengan sangat tidak sabar.
+
+Ketika sang pangeran tiba, pada pukul enam pagi, Gania mendatanginya di kamarnya, membawa serta sebungkus uang hangus, yang ia minta agar sang pangeran segera kembali ke Nastasia Philipovna. Konon ketika Gania memasuki kamar sang pangeran, ia datang dengan perasaan yang tidak bersahabat, dan dalam kondisi putus asa dan sengsara; tapi setelah percakapan singkat, dia tetap bersamanya selama beberapa jam, menangis terus-menerus dan sedih sepanjang waktu. Mereka berpisah karena persahabatan yang baik.
+
+Keluarga Epanchin mendengar tentang hal ini, juga tentang episode di rumah Nastasia Philipovna. Mungkin aneh bahwa fakta-fakta diketahui begitu cepat dan cukup akurat. Bagi Gania, bisa saja berita itu disampaikan melalui Varvara Ardalionovna, yang tiba-tiba sering mengunjungi gadis-gadis Epanchin, sehingga ibu mereka sangat terkejut. Namun meskipun Varvara merasa cocok, karena alasan tertentu, berteman dengan mereka, kecil kemungkinannya dia akan membicarakan kakaknya kepada mereka. Dia mempunyai harga diri yang tinggi, terlepas dari kenyataan bahwa dengan bertindak seperti itu dia mencari keintiman dengan orang-orang yang secara praktis telah menunjukkan pintu kepada kakaknya. Dia dan gadis-gadis Epanchin sudah saling kenal sejak kecil, meski akhir-akhir ini mereka jarang bertemu. Bahkan sekarang Varvara hampir tidak pernah muncul di ruang tamu, melainkan menyelinap melalui jalan belakang. Lizabetha Prokofievna, yang tidak menyukai Varvara, meskipun dia sangat menghormati ibunya, sangat kesal dengan keintiman yang tiba-tiba ini, dan mengaitkannya dengan “kekontrasan” umum putri-putrinya, yang “selalu mencari cara baru untuk menentangnya.” Meski begitu, Varvara tetap melanjutkan kunjungannya.
+
+Sebulan setelah kepergian Muishkin, Ny. Epanchin menerima surat dari teman lamanya Putri Bielokonski (yang baru-baru ini berangkat ke Moskow), yang suratnya membuatnya sangat senang. Dia tidak membocorkan isinya kepada putri-putrinya atau jenderalnya, namun perilakunya terhadap putri-putrinya menjadi sangat penuh kasih sayang. Dia bahkan membuat semacam pengakuan kepada mereka, tapi mereka tidak mengerti apa maksudnya. Dia sebenarnya sedikit santai terhadap sang jenderal—dia sudah lama dipermalukan—dan meskipun dia berhasil bertengkar dengan mereka sepanjang hari berikutnya, namun dia segera sadar, dan dari perilakunya secara umum dapat disimpulkan bahwa dia punya kabar baik, yang dia ingin, tapi tidak bisa mengambil keputusan, untuk diungkapkan.
+
+Namun, seminggu kemudian dia menerima surat lagi dari sumber yang sama, dan akhirnya memutuskan untuk berbicara.
+
+Dia dengan sungguh-sungguh mengumumkan bahwa dia telah mendengar kabar dari Putri Bielokonski tua, yang telah memberikan kabar paling menghibur tentang “pangeran muda yang aneh itu”. Temannya telah memburunya, dan mendapati bahwa semuanya baik-baik saja dengannya. Sejak saat itu, dia mengunjunginya secara langsung, memberikan kesan yang sangat baik, karena sang putri telah menerimanya setiap hari sejak itu, dan telah memperkenalkannya ke beberapa rumah bagus.
+
+Gadis-gadis itu dapat melihat bahwa ibu mereka menyembunyikan banyak hal dari mereka, dan meninggalkan sebagian besar surat itu ketika dibacakan kepada mereka.
+
+Namun, kebekuan itu pecah, dan tiba-tiba nama sang pangeran dapat disebutkan lagi. Dan sekali lagi menjadi jelas betapa kuatnya kesan yang dibuat pemuda itu terhadap rumah tangganya dengan satu kunjungannya ke sana. Nyonya Epanchin terkejut dengan dampak berita dari Moskow terhadap gadis-gadis itu, dan mereka juga terkejut bahwa setelah dengan sungguh-sungguh mengatakan bahwa karakteristiknya yang paling mencolok adalah “keliru dalam menghadapi orang lain”, dia seharusnya bersusah payah mendapatkan bantuan dan perlindungan dari seorang wanita tua yang begitu berkuasa seperti Putri Bielokonski untuk sang pangeran. Segera setelah ketegangan itu terpecahkan, sang jenderal segera menunjukkan bahwa ia juga menaruh perhatian terbesar pada pokok bahasan itu. Ia mengaku tertarik, namun mengatakan hal itu hanya sekedar persoalan bisnis. Tampaknya, demi kepentingan sang pangeran, ia telah membuat pengaturan di Moskow untuk mengawasi secara cermat urusan-urusan bisnis sang pangeran, dan khususnya terhadap Salaskin. Semua yang dikatakan bahwa sang pangeran tidak diragukan lagi adalah pewaris kekayaan ternyata benar; namun kekayaannya terbukti jauh lebih kecil daripada yang dilaporkan pertama kali. Perkebunan itu sangat terbebani dengan hutang; para kreditur muncul dari berbagai pihak, dan sang pangeran, meskipun telah diberi nasihat dan permohonan, bersikeras untuk mengurus sendiri semua urusan klaim—yang, tentu saja, berarti memuaskan semua orang, meskipun setengah dari klaim tersebut benar-benar palsu.
+
+Nyonya Epanchin membenarkan semua ini. Dia mengatakan bahwa sang putri juga menulis hal yang sama, dan menambahkan bahwa tidak ada yang bisa menyembuhkan orang bodoh. Tapi terlihat jelas, dari ekspresi wajahnya, betapa dia sangat menyetujui tindakan anak muda bodoh ini. Sebagai kesimpulan, sang jenderal mengamati bahwa istrinya menaruh perhatian yang besar pada sang pangeran seolah-olah sang pangeran adalah putranya sendiri; dan bahwa dia mulai menaruh kasih sayang pada Aglaya adalah fakta yang jelas.
+
+Semua ini menyebabkan sang jenderal tampak serius dan penting. Tapi sayang sekali! keadaan yang menyenangkan ini segera berubah sekali lagi.
+
+Beberapa minggu berlalu, dan tiba-tiba sang jenderal dan istrinya kembali muram dan diam, dan es tetap kokoh seperti biasanya. Faktanya adalah, sang jenderal, yang pertama kali mendengar, bagaimana Nastasia Philipovna melarikan diri ke Moskow dan ditemukan di sana oleh Rogojin; bahwa dia kemudian menghilang sekali lagi, dan ditemukan lagi oleh Rogojin, dan bagaimana setelah itu dia hampir berjanji untuk menikah dengannya, sekarang menerima kabar bahwa dia sekali lagi menghilang, hampir pada hari yang ditentukan untuk pernikahannya, kali ini terbang ke suatu tempat di pedalaman Rusia, dan bahwa Pangeran Muishkin telah menyerahkan semua urusannya di tangan Salaskin dan menghilang juga—tetapi apakah dia bersama Nastasia, atau hanya berangkat untuk mencarinya, tidak diketahui.
+
+Lizabetha Prokofievna menerima kabar konfirmasi dari sang putri—dan sayangnya, dua bulan setelah kepergian pertama sang pangeran dari St. Petersburg, kegelapan dan misteri sekali lagi menyelimuti keberadaan dan tindakannya, dan dalam keluarga Epanchin, es keheningan sekali lagi menyelimuti subjek tersebut. Varia, bagaimanapun, memberi tahu gadis-gadis itu tentang apa yang telah terjadi, dia menerima kabar tersebut dari Ptitsin, yang umumnya tahu lebih banyak daripada kebanyakan orang.
+
+Sebagai penutup, kita dapat mengatakan bahwa ada banyak perubahan dalam rumah tangga Epanchin di musim semi, sehingga tidak sulit untuk melupakan sang pangeran, yang tidak mengirimkan kabar tentang dirinya.
+
+Keluarga Epanchin akhirnya memutuskan untuk menghabiskan musim panas di luar negeri, kecuali sang jenderal, yang tentu saja tidak bisa membuang waktu untuk “berpergian untuk bersenang-senang”. Pengaturan ini terwujud karena kegigihan para gadis tersebut, yang bersikeras bahwa mereka tidak boleh pergi ke luar negeri karena orang tua mereka terlalu ingin menikahkan mereka. Mungkin orang tua mereka akhirnya sampai pada kesimpulan bahwa suami mereka mungkin bisa ditemukan di luar negeri, dan perjalanan musim panas mungkin akan membuahkan hasil. Pernikahan antara Alexandra dan Totski telah putus. Sejak kepergian sang pangeran dari Sankt Peterburg, tidak ada lagi pembicaraan mengenai hal ini; topik tersebut dibatalkan tanpa basa-basi, sehingga Ny. Jenderal sangat gembira, yang mengumumkan bahwa dia “siap membuat tanda salib dengan kedua tangannya” sebagai tanda terima kasih atas pelariannya. Namun sang jenderal sudah lama menyesali Totski. “Sungguh suatu kekayaan!” dia menghela nafas, “dan orang yang baik dan santai!”
+
+Setelah beberapa waktu diketahui bahwa Totski telah menikah dengan seorang marquise Perancis, dan akan dibawa olehnya ke Paris, dan kemudian ke Brittany.
+
+“Oh, baiklah,” pikir sang jenderal, “dia telah kehilangan kita untuk selamanya sekarang.”
+
+Jadi keluarga Epanchin bersiap berangkat musim panas.
+
+Namun kini terjadi keadaan lain, yang sekali lagi mengubah semua rencana, dan sekali lagi perjalanan yang direncanakan ditunda, yang sangat menggembirakan sang jenderal dan istrinya.
+
+Seorang Pangeran S— tiba di St. Petersburg dari Moskow, seorang pemuda terkemuka dan terhormat. Dia adalah salah satu orang aktif yang selalu menemukan pekerjaan bagus untuk mempekerjakan diri mereka sendiri. Tanpa memaksakan diri untuk diperhatikan publik, dengan rendah hati dan tidak mencolok, pangeran muda ini prihatin dengan banyak hal yang terjadi di dunia secara umum.
+
+Mula-mula ia bertugas di salah satu departemen sipil, kemudian menangani urusan-urusan yang berkaitan dengan pemerintahan daerah di kota-kota provinsi, dan akhir-akhir ini menjadi anggota koresponden di beberapa perkumpulan ilmiah penting. Dia adalah seorang lelaki yang berasal dari keluarga baik-baik dan berkecukupan, berusia sekitar tiga puluh lima tahun.
+
+Pangeran S— berkenalan dengan keluarga sang jenderal, dan Adelaida, gadis kedua, memberikan kesan yang luar biasa padanya. Menjelang musim semi dia melamarnya, dan dia menerimanya. Jenderal dan istrinya sangat senang. Perjalanan ke luar negeri ditunda, dan pernikahan ditetapkan pada hari yang tidak terlalu lama.
+
+Perjalanan ke luar negeri mungkin nanti bisa dinikmati oleh Ny. Epanchin dan kedua putrinya yang tersisa, tapi karena keadaan lain.
+
+Kebetulan Pangeran S— memperkenalkan kerabat jauhnya ke dalam keluarga Epanchin—seorang Evgenie Pavlovitch, seorang perwira muda berusia sekitar dua puluh delapan tahun, yang penaklukannya di kalangan wanita di Moskow sudah menjadi pepatah. Pria muda ini baru saja melihat Aglaya dan dia sering berkunjung ke rumah itu. Dia cerdas, terpelajar, dan sangat kaya, seperti yang segera diketahui oleh sang jenderal. Reputasi masa lalunya adalah satu-satunya hal yang merugikannya.
+
+Tidak ada yang dikatakan; bahkan tidak ada petunjuk apa pun yang diberikan; tapi tetap saja, tampaknya lebih baik bagi para orang tua untuk tidak mengatakan apa pun lagi tentang pergi ke luar negeri musim ini, di semua acara. Aglaya sendiri mungkin berpendapat berbeda.
+
+Semua ini terjadi tepat sebelum kemunculan kedua pahlawan kita di tempat kejadian.
+
+Pada saat ini, dilihat dari penampilannya, Pangeran Muishkin yang malang sudah cukup dilupakan di Sankt Peterburg. Jika dia tiba-tiba muncul di antara kenalannya, dia akan diterima sebagai salah satu dari langit; tapi kita harus melihat satu fakta lagi sebelum kita menyimpulkan kata pengantar ini.
+
+Colia Ivolgin, untuk beberapa waktu setelah kepergian sang pangeran, melanjutkan kehidupan lamanya. Artinya, dia bersekolah, menjaga ayahnya, membantu Varia di rumah, menjalankan keperluannya, dan sering pergi menemui temannya, Hippolyte.
+
+Para penghuni penginapan menghilang dengan sangat cepat—Ferdishenko segera setelah kejadian di rumah Nastasia Philipovna, sementara sang pangeran pergi ke Moskow, seperti yang kita ketahui. Gania dan ibunya tinggal bersama Varia dan Ptitsin segera setelah pernikahan Varia, sementara sang jenderal ditempatkan di penjara debitur karena surat utang tertentu yang diberikan kepada janda kapten dengan kesan bahwa surat utang tersebut tidak akan pernah digunakan secara resmi untuk melawannya. Tindakan tidak baik ini sangat mengejutkan Ardalion Alexandrovitch yang malang, korban, begitu ia menyebut dirinya, dari “kepercayaan tak terbatas pada keagungan hati manusia.”
+
+Ketika dia menandatangani catatan tangan itu, dia tidak pernah bermimpi bahwa itu akan menjadi sumber masalah di masa depan. Peristiwa itu menunjukkan bahwa dia salah. "Percayalah pada siapa pun setelah ini! Setidaknya jangan percaya pada pria atau wanita!" dia menangis dengan nada getir, saat dia duduk bersama teman-teman barunya di penjara, dan menceritakan kepada mereka kisah-kisah favoritnya tentang pengepungan Kars, dan prajurit yang dihidupkan kembali. Secara keseluruhan, dia beradaptasi dengan baik pada posisi barunya. Ptitsin dan Varia menyatakan bahwa dia berada di tempat yang tepat, dan Gania juga berpendapat sama. Satu-satunya orang yang menyesalkan nasibnya adalah Nina Alexandrovna yang malang, yang menangis tersedu-sedu karena dia, yang membuat seisi rumahnya sangat terkejut, dan, meskipun kesehatannya selalu lemah, dia bertekad untuk menemuinya sesering mungkin.
+
+Sejak “kecelakaan” sang jenderal, demikian Colia menyebutnya, dan pernikahan saudara perempuannya, anak laki-laki itu diam-diam memiliki lebih banyak kebebasan. Kerabatnya jarang bertemu dengannya, karena dia jarang tidur di rumah. Dia mendapat banyak teman baru; dan terlebih lagi, dia sering berkunjung ke penjara debitur, dan dia selalu menemani ibunya. Varia, yang biasanya selalu mengoreksinya, kini tidak pernah lagi berbicara dengannya mengenai seringnya dia absen, dan seluruh anggota keluarga terkejut melihat Gania, meskipun depresi, cukup bersahabat dengan saudaranya. Ini adalah sesuatu yang baru, karena Gania terbiasa memandang Colia sebagai semacam pesuruh, memperlakukannya dengan hina, mengancam untuk “menarik telinganya”, dan secara umum membuatnya hampir menjadi liar karena kesal. Tampaknya sekarang Gania benar-benar membutuhkan saudaranya, dan saudaranya, pada bagiannya, merasa seolah-olah dia bisa memaafkan Gania karena dia telah mengembalikan seratus ribu rubel yang ditawarkan kepadanya oleh Nastasia Philipovna. Tiga bulan setelah kepergian sang pangeran, keluarga Ivolgin mengetahui bahwa Colia telah berkenalan dengan keluarga Epanchin, dan sangat bersahabat dengan putri-putrinya. Varia pertama kali mendengarnya, meskipun Colia tidak memintanya untuk memperkenalkannya. Sedikit demi sedikit keluarga itu semakin menyayanginya. Madame Epanchin mula-mula memandangnya dengan jijik, dan menerimanya dengan dingin, namun dalam waktu singkat dia mulai menyenangkan hatinya, karena, seperti yang dikatakannya, dia “jujur ​​dan tidak suka menyanjung”—sebuah gambaran yang sangat benar. Sejak awal dia menempatkan dirinya setara dengan teman-teman barunya, dan meskipun dia kadang-kadang membacakan koran dan buku untuk nyonya rumah, itu hanya karena dia suka berguna.
+
+Namun suatu hari, dia dan Lizabetha Prokofievna bertengkar serius mengenai “pertanyaan wanita”, dalam diskusi yang seru mengenai topik hangat tersebut. Dia mengatakan padanya bahwa dia adalah seorang tiran, dan dia tidak akan pernah menginjakkan kaki di rumahnya lagi. Ini mungkin tampak luar biasa, tetapi satu atau dua hari setelahnya, Madame Epanchin mengirim seorang pelayan dengan pesan yang memintanya untuk kembali, dan Colia, tanpa menjunjung tinggi harga dirinya, langsung melakukannya.
+
+Aglaya adalah satu-satunya keluarga yang rahmat baiknya tidak dapat diperolehnya, dan selalu berbicara kepadanya dengan angkuh, tetapi kebetulan suatu hari anak laki-laki itu berhasil memberikan kejutan kepada gadis yang sombong itu.
+
+Saat itu menjelang Paskah, ketika Colia memanfaatkan pertemuan tatap muka sesaat, ia menyerahkan sepucuk surat kepada Aglaya, menyatakan bahwa ia “mendapat perintah untuk mengirimkan surat itu kepadanya secara pribadi.” Dia menatapnya dengan takjub, tapi dia tidak menunggu untuk mendengar apa yang dia katakan, dan pergi keluar. Aglaya membuka segelnya, dan berbunyi sebagai berikut:
+
+"Suatu kali kau memberiku kehormatan untuk memberiku kepercayaan diri. Mungkin sekarang kau sudah cukup melupakanku! Bagaimana bisa aku menulis surat kepadamu? Aku tidak tahu; tapi aku sadar akan keinginan yang tak tertahankan untuk mengingatkanmu akan keberadaanku, terutama dirimu. Berapa kali aku membutuhkan kalian bertiga; tapi hanya kau yang selalu ada dalam pikiranku. Aku membutuhkanmu—aku sangat membutuhkanmu. Aku tidak akan menulis tentang diriku sendiri. Tak ada yang ingin kuceritakan padamu. Tapi aku ingin kau bahagia. _Apakah_ kamu bahagia? Hanya itu yang ingin kukatakan padamu—saudaramu,
+
+“Pr. L.Muishkin.”
+
+Saat membaca catatan pendek dan terputus ini, Aglaya tiba-tiba tersipu, dan menjadi sangat berpikir.
+
+Sulit untuk menggambarkan pemikirannya saat itu. Salah satunya adalah, “Bolehkah saya menunjukkannya kepada siapa pun?” Tapi dia malu untuk menunjukkannya. Jadi dia mengakhirinya dengan menyembunyikannya di laci mejanya, dengan senyuman yang sangat aneh dan ironis di bibirnya.
+
+Keesokan harinya, dia mengeluarkannya, dan memasukkannya ke dalam sebuah buku besar, seperti yang biasa dia lakukan dengan kertas-kertas yang ingin dia temukan dengan mudah. Dia tertawa ketika, sekitar seminggu kemudian, dia kebetulan melihat nama buku itu, dan melihat bahwa itu adalah Don Quixote, namun sulit untuk mengatakan dengan tepat alasannya.
+
+Saya juga tidak bisa mengatakan apakah dia menunjukkan surat itu kepada saudara perempuannya.
+
+Tapi ketika dia membacanya sendiri sekali lagi, tiba-tiba dia sadar bahwa anak laki-laki sombong itu, Colia, bukanlah satu-satunya koresponden yang dipilih sang pangeran selama ini. Dia bertekad untuk menanyakannya, dan melakukannya dengan sikap kecerobohan yang berlebihan. Ia memberitahunya dengan angkuh bahwa meskipun ia telah memberikan alamat tetapnya kepada sang pangeran ketika sang pangeran meninggalkan kota, dan telah menawarkan jasanya, sang pangeran belum pernah memberinya tugas apa pun, dan ia juga belum pernah menulis surat sampai baris-baris berikut tiba, bersama surat Aglaya. Aglaya mengambil catatan itu, dan membacanya.
+
+"COLIA YANG TERHORMAT,—Mohon berbaik hati memberikan surat terlampir yang tersegel kepada Aglaya Ivanovna. Jagalah baik-baik—Selalu kasih sayangmu,
+
+“Pr. L.Muishkin.”
+
+“Rasanya tidak masuk akal mempercayai kotak merica kecil sepertimu,” kata Aglaya sambil mengembalikan surat itu, dan berjalan melewati “kotak merica” itu dengan ekspresi sangat jijik.
+
+Ini lebih dari yang bisa ditanggung Colia. Dia sebenarnya meminjam dasi hijau baru Gania untuk acara tersebut, tanpa mengatakan mengapa dia menginginkannya, untuk membuatnya terkesan. Dia merasa sangat malu.
+
+---
+[← Sebelumnya](16_bagian_1_bab_16.md) | [Daftar Isi](00_daftar_isi.md) | [Selanjutnya →](18_bagian_2_bab_2.md)
+---
